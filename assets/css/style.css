@@ -3,7 +3,89 @@ html {
     font-family: 'DM Sans', sans-serif;
     -webkit-font-smoothing: antialiased;
     font-smoothing: antialiased;
-    min-height: 200vh;
     background: #fff;
     color:#000;
+}
+
+/* Typography */
+
+p + p {
+	text-indent: inherit;
+	margin-top: inherit;
+}
+
+.intro {
+  font-size: 1.25rem;
+  line-height: 1.6;
+  margin-bottom: 8px;
+}
+
+h1 {
+  font-size: 1.875rem;
+  line-height: 1.4;
+  margin-bottom: 32px;
+  letter-spacing: -.1px;
+
+  @media () {
+    font-size: ;
+    margin-bottom: ;
+  }
+}
+
+.mega {
+  font-size: 2.25rem;
+  line-height:  1.385;
+  margin-top: 32px;
+  margin-bottom: 32px;
+  letter-spacing: -.1px;
+
+  @media () {
+    font-size: ;
+    margin-bottom: ;
+  }
+}
+
+h2 {
+  font-size: 1.25rem;
+  line-height: 1.55;
+  margin-bottom: 8px;
+  letter-spacing: -.1px;
+
+  @media () {
+    font-size: ;
+    margin-bottom: ;
+  }
+}
+
+h3 {
+  font-size: 1.125rem;
+  line-height: 1.455;
+  margin-top: 8px;
+  margin-bottom: 8px;
+  letter-spacing: -.1px;
+}
+
+h4 {
+  font-size: 1.125rem;
+  line-height: 1.455;
+  margin-top: 8px;
+  margin-bottom: 8px;
+  letter-spacing: -.1px;
+}
+
+h5 {
+  font-size: 1.125rem;
+  line-height: 1.455;
+  margin-top: 8px;
+  margin-bottom: 8px;
+  letter-spacing: -.1px;
+  font-weight: 600;
+}
+
+h6 {
+  font-size: 0.8125rem;
+  line-height: 1.5;
+  margin-top: 0px;
+  margin-bottom: 8px;
+  letter-spacing: -.1px;
 }
