@@ -1,1 +1,0 @@
-# malynakupvelkapomoc.github.io
