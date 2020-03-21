@@ -1,18 +1,45 @@
-/* Body */
+/* Globals */
 
-body {
-    font-family: "DM Sans", sans-serif;
-    -webkit-font-smoothing: antialiased;
-    font-smoothing: antialiased;
-    background: #fff;
-    color:#000;
+*,
+:after,
+:before {
+  -webkit-box-sizing: border-box;
+          box-sizing: border-box;
 }
 
+html {
+  font-size: 100%;
+}
+
+body {
+  position: relative;
+  margin: 0;
+  padding: 0;
+  color: #282828;
+  font-family: "DM Sans", "Helvetica Neue", Helvetica, Arial, sans-serif;
+  -webkit-font-smoothing: antialiased;
+  -moz-osx-font-smoothing: grayscale;
+  font-size: 1.125rem;
+  line-height: 1.5;
+}
+
+@media (min-width: 46.875em) {
+
+body {
+    font-size: 1.2499999rem;
+}
+  }
+
+img {
+  max-width: 100%;
+  height: auto;
+}
 
 /* Typography */
 
 h1 {
   font-size: 1.875rem;
+  line-height: 1.2;
   margin-bottom: 0.5rem;
 }
 
@@ -20,6 +47,7 @@ h1 {
 
 h1 {
     font-size: 2.875rem;
+    line-height: 1.2;
     margin-bottom: 1rem;
 }
   }
