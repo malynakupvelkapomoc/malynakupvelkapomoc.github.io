@@ -7,13 +7,3 @@ body {
     background: #fff;
     color:#000;
 }
-
-@media (max-width: 860px) {
-    html {
-    }
-}
-
-@media (max-width: 600px) {
-    html {
-    }
-}
