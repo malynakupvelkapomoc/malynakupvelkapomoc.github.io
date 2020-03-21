@@ -1,1 +1,25 @@
+html {
+    position: relative;
+    font-family: 'DM Sans', sans-serif;
+    font-size: 21px;
+    line-height: 28px;
+    -webkit-font-smoothing: antialiased;
+    font-smoothing: antialiased;
+    min-height: 200vh;
+    background: #fff;
+    color:#000;
+}
 
+@media (max-width: 860px) {
+    html {
+        font-size: 17.5px;
+        line-height:24.5px
+    }
+}
+
+@media (max-width: 600px) {
+    html {
+        font-size: 12.25px;
+        line-height:17.5px
+    }
+}
