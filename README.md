@@ -6,6 +6,16 @@
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
+### Zestó
+#### malý e-shop s řeckými designovými produkty, podporujeme řecké lokální designéry a freelancery, všechny produkty jsou udržitelné
+#### Výše ztráty k 23.3.2020: neuvedeno
+
+Forma pomoci: nákup na e-shopu
+
+Webové stránky: [zesto.cz](https://www.zesto.cz)
+
+Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
+
 ### 100CLASS concept store
 #### obchod zaměřený na lokální módu a design
 #### Výše ztráty k 23.3.2020: 70000
@@ -15,7 +25,6 @@ Forma pomoci: nákup na e-shopu
 Webové stránky: [stoclass.com](https://www.stoclass.com)
 
 Instagram/Facebook: [100CLASS_concept_store](https://www.instagram.com/100class_concept_store/?hl=cs)/[stoclass](https://www.facebook.com/stoclass/)
-
 
 ### Etikbutik.cz
 #### E-shop s etickou, pomalou módou a veganskou obuví a doplňky. Výdejna a showroom na Praze 2. Protože eko a etik je také šik! <3
