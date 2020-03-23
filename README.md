@@ -1,16 +1,17 @@
-**UPDATE 23/3** Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo.
+**UPDATE 23/3** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
-# Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto.
+# Malí podnikatelé momentálně procházejí velkou krizí. Kamenné prodejny jsou kvůli šíření koronaviru uzavřené a není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
 
-## Ut enim ad minima veniam, quis nostrum exercitationem ullam corporis suscipit laboriosam, nisi ut aliquid ex ea commodi
+## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci.
 
+Tato stránka navazuje na instagramovou iniciativu #malynakupvelkapomoc #shopsmallhelpbig za cílem pomoci s výběrem malých firem (tj. dle zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
-### Jméno Příjmení
-#### Pekárna a kavárna
-#### Odhad ztráty: 40.000 CZK
+### Název provozu / značky
+#### Popis podnikatelské činnosti
+#### Výše ztráty k DD.MM.YYYY
 
-At vero eos et accusamus et iusto odio 💪
+Forma pomoci: 
 
-Instagram: [@jmenoprijmeni](https://www.instagram.com/rello.coffee/)
+Webové stránky: []()
 
-Web: [shop.rello.cz](http://shop.rello.cz/)
+Instagram/Facebook: []()
