@@ -1,6 +1,6 @@
 **UPDATE 23.3.** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
-# Malí podnikatelé momentálně procházejí velkou krizí. Kamenné prodejny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
+# Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
 
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci.
 
