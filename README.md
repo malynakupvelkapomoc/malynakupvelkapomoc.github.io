@@ -14,7 +14,7 @@ Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
 
 Webové stránky: [tokyobike.cz](https://www.tokyobike.cz/)
 
-Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
+Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ### Zestó
 #### malý e-shop s řeckými designovými produkty, podporujeme řecké lokální designéry a freelancery, všechny produkty jsou udržitelné
@@ -24,7 +24,7 @@ Forma pomoci: nákup na e-shopu
 
 Webové stránky: [zesto.cz](https://www.zesto.cz)
 
-Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
+Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
 
 ### 100CLASS concept store
 #### obchod zaměřený na lokální módu a design
