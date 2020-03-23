@@ -6,15 +6,7 @@
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
-### LAFORMELA
-#### Navrhování a tvorba módních oděvů
-#### Výše ztráty k 23.3.2020: 100 000
 
-Forma pomoci: Nákup produktů přes Instagram. Začátkem dubna představíme zbrusu novou sezónu.
-
-Webové stránky: [laformela.com](http://shop.laformela.com)
-
-Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
 
 ### Harddecore / Josefína Bakošová
 #### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
@@ -25,6 +17,7 @@ Forma pomoci: Nákup přes e-shop nebo sociální sítě
 Webové stránky: [harddecore.com](https://www.harddecore.com/)
 
 Instagram/Facebook: [josefinabakosova](https://www.instagram.com/josefinabakosova)
+
 
 ### Rello Il Torrefattore
 #### pražírna kávy
@@ -45,3 +38,13 @@ Forma pomoci: Nákup produktů či voucheru na e-shopu. Máme novou kolekci SS20
 Webové stránky: [lafemmemimi.com](https://www.lafemmemimi.com/)
 
 Instagram/Facebook: [a_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[afemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
+
+### LAFORMELA
+#### Navrhování a tvorba módních oděvů
+#### Výše ztráty k 23.3.2020: 100 000
+
+Forma pomoci: Nákup produktů přes Instagram. Začátkem dubna představíme zbrusu novou sezónu.
+
+Webové stránky: [laformela.com](http://shop.laformela.com)
+
+Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
