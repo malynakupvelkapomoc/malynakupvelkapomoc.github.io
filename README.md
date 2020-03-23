@@ -6,6 +6,16 @@
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
+### tokyobike
+#### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
+#### Výše ztráty k 23.3.2020: neuvedeno
+
+Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
+
+Webové stránky: [tokyobike.cz](https://www.tokyobike.cz/)
+
+Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
+
 ### Zestó
 #### malý e-shop s řeckými designovými produkty, podporujeme řecké lokální designéry a freelancery, všechny produkty jsou udržitelné
 #### Výše ztráty k 23.3.2020: neuvedeno
@@ -14,7 +24,7 @@ Forma pomoci: nákup na e-shopu
 
 Webové stránky: [zesto.cz](https://www.zesto.cz)
 
-Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
+Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ### 100CLASS concept store
 #### obchod zaměřený na lokální módu a design
