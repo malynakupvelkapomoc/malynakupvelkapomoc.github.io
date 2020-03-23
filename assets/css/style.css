@@ -341,8 +341,15 @@ a:active, a:focus {
     }
 
     .float-right {
+      float: none;
+    }
+
+    @media (min-width: 46.875em) {
+
+      .float-right {
         float: right;
     }
+      }
 
     /* Utilities */
 
