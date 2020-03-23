@@ -85,7 +85,7 @@ Forma pomoci: Nákup produktů či voucheru na e-shopu. Máme novou kolekci SS20
 
 Webové stránky: [lafemmemimi.com](https://www.lafemmemimi.com/)
 
-Instagram/Facebook: [a_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[afemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
+Instagram/Facebook: [la_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[afemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
 
 ### LAFORMELA
 #### Navrhování a tvorba módních oděvů
