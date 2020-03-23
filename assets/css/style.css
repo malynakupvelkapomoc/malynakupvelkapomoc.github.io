@@ -341,7 +341,7 @@ a:active, a:focus {
     }
 
     .float-right {
-      float: none;
+      float: left;
     }
 
     @media (min-width: 46.875em) {
