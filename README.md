@@ -24,4 +24,4 @@ Forma pomoci: Objednat rozvoz kávy domů
 
 Webové stránky: [rello.cz](http://www.rello.cz/)
 
-Instagram/Facebook: [laformela](https://www.instagram.com/rello.coffee/)
+Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
