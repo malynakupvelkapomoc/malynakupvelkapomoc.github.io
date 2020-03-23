@@ -8,7 +8,7 @@
 
 ### tokyobike
 #### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
-#### Výše ztráty k 23.3.2020: neuvedeno
+#### Výše ztráty k 23.3.2020: řádově nižší stovky tisíc
 
 Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
 
@@ -95,4 +95,4 @@ Forma pomoci: Nákup produktů přes Instagram. Začátkem dubna představíme z
 
 Webové stránky: [laformela.com](http://shop.laformela.com)
 
-Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
+Instagram/Facebook: [laformela](https://www.instagram.com/laformela/) 
