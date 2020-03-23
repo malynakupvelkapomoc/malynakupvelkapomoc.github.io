@@ -20,7 +20,7 @@ body {
   font-family: "DM Sans", "Helvetica Neue", Helvetica, Arial, sans-serif;
   -webkit-font-smoothing: antialiased;
   -moz-osx-font-smoothing: grayscale;
-  font-size: 1.125rem;
+  font-size: 1rem;
   line-height: 1.5;
 }
 
@@ -102,8 +102,8 @@ ol + h6 {
 h1 {
   font-size: 1.875rem;
   line-height: 1.2;
-  margin-bottom: 0.5rem;
-  padding-top: 5vmax;
+  margin-bottom: 3rem;
+  padding-top: 3rem;
 }
 
 @media (min-width: 46.875em) {
@@ -111,41 +111,44 @@ h1 {
 h1 {
     font-size: 2.875rem;
     line-height: 1.2;
-    margin-bottom: 1rem;
+    margin-bottom: 2rem;
+    padding-top: 4rem;
 }
   }
 
 h2 {
   font-size: 1.625rem;
-  margin-bottom: 0.5rem;
-  padding-top: 3vmax;
+  margin-top: 4rem;
+  margin-bottom: 2rem;
 }
 
 @media (min-width: 46.875em) {
 
 h2 {
     font-size: 2rem;
-    margin-bottom: 1rem;
-    padding-bottom: 5vmax;
+    margin-top: 4rem;
+    margin-bottom: 3rem;
 }
   }
 
 h3 {
   font-size: 1.375rem;
-  margin-bottom: 0.5rem;
-  padding-top: 3vmax;
+  margin-top: 4rem;
+  margin-bottom: 1.5rem;
 }
 
 @media (min-width: 46.875em) {
 
 h3 {
     font-size: 1.625rem;
-    margin-bottom: 1rem;
+    margin-top: 5rem;
+    margin-bottom: 2rem;
 }
   }
 
 h4, h5, h6 {
   font-size: 1.125rem;
+  margin-top: 0.5rem;
   margin-bottom: 0.5rem;
 }
 
@@ -153,6 +156,7 @@ h4, h5, h6 {
 
 h4, h5, h6 {
     font-size: 1.375rem;
+    margin-top: 1rem;
     margin-bottom: 1rem;
 }
   }
@@ -170,7 +174,8 @@ h4, h5, h6 {
   }
 
 p {
-  margin-bottom: 1rem;
+  margin-top: 0.5rem;
+  margin-bottom: 0.5rem;
 }
 
 ul,
@@ -469,6 +474,7 @@ a:active, a:focus {
 
     .header-inner {
         margin-bottom: 16px;
+        font-size: 1.375rem;
         background: #f1edea;
         color: #44237a;
     }
@@ -476,6 +482,7 @@ a:active, a:focus {
     @media (min-width: 60em) {
         .header-inner {
             margin-bottom: 32px;
+            font-size: 1.625rem;
         }
     }
 
