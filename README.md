@@ -35,3 +35,13 @@ Forma pomoci: Objednat rozvoz kávy domů
 Webové stránky: [rello.cz](http://www.rello.cz/)
 
 Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
+
+### La femme Mimi
+#### Navrhování a tvorba dámských zerowaste oděvů
+#### Výše ztráty k 23.3.2020: 100 000
+
+Forma pomoci: Nákup produktů či voucheru na e-shopu. Máme novou kolekci SS2020!
+
+Webové stránky: [lafemmemimi.com](https://www.lafemmemimi.com/)
+
+Instagram/Facebook: [a_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[afemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
