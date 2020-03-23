@@ -37,6 +37,67 @@ img {
 
 /* Typography */
 
+h1,
+h2,
+h3,
+h4,
+h5,
+h6,
+ul,
+ol,
+p,
+address {
+  margin-top: 0;
+}
+
+h1,
+h2,
+h3,
+h4,
+h5,
+h6 {
+  font-weight: 400;
+}
+
+p + h2,
+p + h3,
+p + h4,
+p + h5,
+p + h6,
+ul + h2,
+ul + h3,
+ul + h4,
+ul + h5,
+ul + h6,
+ol + h2,
+ol + h3,
+ol + h4,
+ol + h5,
+ol + h6 {
+  padding-top: 1rem;
+}
+
+@media (min-width: 46.875em) {
+
+p + h2,
+p + h3,
+p + h4,
+p + h5,
+p + h6,
+ul + h2,
+ul + h3,
+ul + h4,
+ul + h5,
+ul + h6,
+ol + h2,
+ol + h3,
+ol + h4,
+ol + h5,
+ol + h6 {
+    padding-top: 2rem;
+}
+  }
+
 h1 {
   font-size: 1.875rem;
   line-height: 1.2;
@@ -178,7 +239,7 @@ a, {
   color: #00729a;
   text-decoration: underline;
   -webkit-text-decoration-skip: ink;
-          text-decoration-skip-ink: auto
+  text-decoration-skip-ink: auto;
 }
 
 a:hover {
@@ -192,3 +253,569 @@ a:active, a:focus {
     outline: 2px dotted #eec300;
     outline-offset: 3px;
   }
+
+  .link-white {
+    color: #ffffff;
+    text-decoration: underline
+  }
+
+  .link-white:hover {
+      color: #ffffff;
+      text-decoration: none;
+    }
+
+  .link-white:active,
+    .link-white:focus {
+      -webkit-transition: none;
+      transition: none;
+      outline: 2px dotted #ffffff;
+      outline-offset: 3px;
+    }
+
+  .link-black {
+    color: #000000;
+    text-decoration: underline
+  }
+
+  .link-black:hover {
+      color: #000000;
+      text-decoration: none;
+    }
+
+  .link-black:active,
+    .link-black:focus {
+      -webkit-transition: none;
+      transition: none;
+      outline: 2px dotted #000000;
+      outline-offset: 3px;
+    }
+
+  hr {
+    display: block;
+    border-style: solid;
+    border-color: #c4c4c4;
+    border-width: 0 0 1px;
+    height: 0;
+    color: #c4c4c4;
+    margin-top: 1rem;
+    margin-bottom: 2rem;
+  }
+
+  @media (min-width: 46.875em) {
+
+  hr {
+      margin-top: 2rem;
+      margin-bottom: 4rem;
+  }
+    }
+
+    a.nounderline,
+    .nounderline {
+      text-decoration: none;
+    }
+
+    .text-centre {
+      text-align: center;
+    }
+
+    .text-left {
+      text-align: left;
+    }
+
+    .text-right {
+      text-align: right;
+    }
+
+    .nowrap {
+      white-space: nowrap;
+    }
+
+
+    /* Utilities */
+
+    .font-size-14 {
+      font-size: 0.875rem; /* 14px */
+    }
+
+    .font-size-16 {
+      font-size: 1rem; /* 16px */
+    }
+
+    .font-size-18 {
+      font-size: 1.125rem; /* 18px */
+    }
+
+    .font-size-20 {
+      font-size: 1.25rem; /* 20px */
+    }
+
+    .font-size-22 {
+      font-size: 1.375rem; /* 22px */
+    }
+
+    .font-size-24 {
+      font-size: 1.5rem; /* 24px */
+    }
+
+    .font-size-26 {
+      font-size: 1.625rem; /* 26px */
+    }
+
+    .font-size-28 {
+      font-size: 1.75rem; /* 28px */
+    }
+
+    .font-size-30 {
+      font-size: 1.875rem; /* 30px */
+    }
+
+    .font-size-32 {
+      font-size: 2rem; /* 32px */
+    }
+
+
+    /* Utilities - Colour  */
+
+    .brand {
+      color: #00b1e7;
+    }
+    .-brand-bg {
+      background: #00b1e7;
+    }
+
+    .text {
+      color: #282828;
+    }
+    .text-bg {
+      background: #282828;
+    }
+
+    .white {
+      color: #ffffff;
+    }
+    .white-bg {
+      background: #ffffff;
+    }
+    .black {
+      color: #000000;
+    }
+    .black-bg {
+      background: #000000;
+    }
+
+    .link-blue {
+      color: #00729a;
+    }
+    .link-blue-bg {
+      background: #00729a;
+    }
+    .link-hover-blue {
+      color: #000102;
+    }
+    .link-hover-blue-bg {
+      background: #000102;
+    }
+    .link-focus {
+      color: #eec300;
+    }
+    .link-focus-bg {
+      background: #eec300;
+    }
+    .link-focus-outline {
+      outline: 4px solid #eec300;
+    }
+
+    .link-visited,
+    .link-active {
+      color: #004c67;
+    }
+
+    .link-visited-bg,
+    .link-active-bg {
+      background: #004c67;
+    }
+
+    .button-primary {
+      color: #0f8482;
+    }
+    .button-primary-bg {
+      background: #0f8482;
+    }
+    .button-primary-hover-bg {
+      background: #2b9e9c;
+    }
+    .button-dark {
+      color: #374c63;
+    }
+    .button-dark-bg {
+      background: #374c63;
+    }
+    .button-dark-hover-bg {
+      background: #4a6683;
+    }
+
+    .yellow-bright {
+      color: #ffff00;
+    }
+    .yellow-bright-bg {
+      background: #ffff00;
+    }
+    .yellow-light {
+      color: #ffec00;
+    }
+    .yellow-light-bg {
+      background: #ffec00;
+    }
+    .yellow-mid {
+      color: #ffd308;
+    }
+    .yellow-mid-bg {
+      background: #ffd308;
+    }
+
+    .green-bright {
+      color: #edfb3c;
+    }
+    .green-bright-bg {
+      background: #edfb3c;
+    }
+    .green-light {
+      color: #bad303;
+    }
+    .green-light-bg {
+      background: #bad303;
+    }
+    .green-mid {
+      color: #4f820d;
+    }
+    .green-mid-bg {
+      background: #4f820d;
+    }
+    .green-dark {
+      color: #385c0a;
+    }
+    .green-dark-bg {
+      background: #385c0a;
+    }
+
+    .green-blue-bright {
+      color: #0afbfb;
+    }
+    .green-blue-bright-bg {
+      background: #0afbfb;
+    }
+    .green-blue-light {
+      color: #72dcdb;
+    }
+    .green-blue-light-bg {
+      background: #72dcdb;
+    }
+    .green-blue-mid {
+      color: #0f8482;
+    }
+    .green-blue-mid-bg {
+      background: #0f8482;
+    }
+    .green-blue-dark {
+      color: #166d66;
+    }
+    .green-blue-dark-bg {
+      background: #166d66;
+    }
+
+    .blue-bright {
+      color: #418cfc;
+    }
+    .blue-bright-bg {
+      background: #418cfc;
+    }
+    .blue-light {
+      color: #92d8fe;
+    }
+    .blue-light-bg {
+      background: #92d8fe;
+    }
+    .blue-mid {
+      color: #326bb7;
+    }
+    .blue-mid-bg {
+      background: #326bb7;
+    }
+    .blue-dark {
+      color: #334c89;
+    }
+    .blue-dark-bg {
+      background: #334c89;
+    }
+
+    .pink-bright {
+      color: #fc43d3;
+    }
+    .pink-bright-bg {
+      background: #fc43d3;
+    }
+    .pink-light {
+      color: #ff80d3;
+    }
+    .pink-light-bg {
+      background: #ff80d3;
+    }
+
+    .purple-mid {
+      color: #ad208e;
+    }
+    .purple-mid-bg {
+      background: #ad208e;
+    }
+    .purple-dark {
+      color: #61307d;
+    }
+    .purple-dark-bg {
+      background: #61307d;
+    }
+
+    .orange-mid {
+      color: #f8642c;
+    }
+    .orange-mid-bg {
+      background: #f8642c;
+    }
+
+    .red-mid {
+      color: #d63118;
+    }
+    .red-mid-bg {
+      background: #d63118;
+    }
+    .red-dark {
+      color: #9f2a00;
+    }
+    .red-dark-bg {
+      background: #9f2a00;
+    }
+
+    .grey-light {
+      color: #f3f3f3;
+    }
+    .grey-light-bg {
+      background: #f3f3f3;
+    }
+    .grey-mid {
+      color: #c4c4c4;
+    }
+    .grey-mid-bg {
+      background: #c4c4c4;
+    }
+    .grey-dark {
+      color: #6e6e6e;
+    }
+    .grey-dark-bg {
+      background: #6e6e6e;
+    }
+
+
+    /* Buttons */
+
+    .btn {
+      display: inline-block;
+      padding: 0.5rem 1.25rem;
+      color: #ffffff;
+      background: #374c63;
+      font-weight: 400;
+      line-height: 1.2;
+      text-align: center;
+      border: 0;
+      border-radius: 7px;
+      -webkit-transition: all 0.15s linear;
+      transition: all 0.15s linear;
+      outline: none;
+      text-decoration: none;
+      cursor: pointer;
+    }
+
+    @media (min-width: 46.875em) {
+
+    .btn {
+        padding: 1rem 2.5rem;
+    }
+      }
+
+    .btn:hover,
+    .btn:focus {
+      background: #4a6683;
+      color: #ffffff;
+      border: 0;
+    }
+
+    .btn:focus {
+      -webkit-transition: none;
+      transition: none;
+      outline: 2px dotted #eec300;
+      outline-offset: 3px;
+    }
+
+    .btn:active {
+      background: #2e3f53;
+      color: #ffffff;
+      outline: 0;
+    }
+
+    .btn-primary {
+      background: #0f8482;
+      color: #ffffff;
+    }
+
+    .btn-primary:hover,
+    .btn-primary:focus {
+      background: #2b9e9c;
+      color: #ffffff;
+    }
+
+    .btn-active:active {
+      background: #0c6d6b;
+      color: #ffffff;
+    }
+
+    .btn-full {
+      width: 100%;
+    }
+
+    .btn-small {
+      padding: 0.25rem 0.5rem;
+      font-size: 0.8rem
+    }
+
+    @media (min-width: 46.875em) {
+
+    .btn-small {
+        padding: 0.5rem 1rem;
+    }
+      }
+
+    .btn-medium {
+      padding: 0.25rem 0.5rem;
+    }
+
+    @media (min-width: 46.875em) {
+
+    .btn-medium {
+        padding: 0.5rem 1rem;
+    }
+      }
+
+    .btn-large {
+      padding: 1rem 1rem;
+    }
+
+    @media (min-width: 46.875em) {
+
+    .btn-large {
+        padding: 1rem 2rem;
+    }
+      }
+
+    .btn-right {
+        float: right;
+    }
+
+    /* Forms */
+
+
+    /* Tables */
+
+
+    /* Components */
+
+
+    /* Cards  */
+
+
+    /* Signposts */
+
+
+    /* Design system */
+
+
+    .header {
+        z-index: 1;
+        position: relative;
+        padding: 16px 0;
+    }
+
+    @media (min-width: 60em) {
+        .header {
+            padding: 32px 0;
+        }
+    }
+
+    .header-inner {
+        margin-bottom: 16px;
+        background: #ad208e;
+    }
+
+    .header-inner {
+        color: #ffffff;
+    }
+
+    @media (min-width: 60em) {
+        .header-inner {
+            margin-bottom: 32px;
+        }
+    }
+
+    .notice p:nth-child(1) {
+        width: 100%;
+        padding: 16px;
+        margin-bottom: 16px;
+        background: #D4EAF5;
+        border-radius: 5px;
+    }
+
+    @media (min-width: 60em) {
+        .notice p:nth-child(1) {
+            padding: 32px;
+        }
+    }
+
+    .notice p:nth-child(1) {
+        width: 100%;
+        margin-bottom: 0;
+    }
+
+    @media (min-width: 60em) {
+        .notice p:nth-child(1) {
+            width: 100%;
+        }
+    }
+
+    .footer {
+        padding: 16px 0;
+    }
+
+    .footer_list ul {
+        list-style: none;
+        margin-bottom: 0;
+        padding-left: 0;
+    }
+
+    @media (min-width: 46.875em) {
+        .footer_list {
+            text-align: left;
+        }
+        .footer_list li {
+            display: inline-block;
+            margin-right: 32px;
+        }
+    }
+
+    .footer_list a {
+        border: none;
+        border-bottom: 0;
+        text-decoration: underline;
+        font-size: 16px;
+    }
+
+    .footer_list a:hover {
+        border-bottom: 0;
+        text-decoration: none;
+    }
