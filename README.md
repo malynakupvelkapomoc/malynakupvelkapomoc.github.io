@@ -16,6 +16,16 @@ Webové stránky: [laformela.com](http://shop.laformela.com)
 
 Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
 
+### Harddecore / Josefína Bakošová
+#### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
+#### Výše ztráty k 23.3.2020: 80 000
+
+Forma pomoci: Nákup přes e-shop nebo sociální sítě
+
+Webové stránky: [harddecore.com](https://www.harddecore.com/)
+
+Instagram/Facebook: [josefinabakosova](https://www.instagram.com/josefinabakosova)
+
 ### Rello Il Torrefattore
 #### pražírna kávy
 #### Výše ztráty k 23.3.2020: 50 000
