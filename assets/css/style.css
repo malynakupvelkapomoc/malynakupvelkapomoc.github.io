@@ -103,6 +103,7 @@ h1 {
   font-size: 1.875rem;
   line-height: 1.2;
   margin-bottom: 0.5rem;
+  padding-top: 5vmax;
 }
 
 @media (min-width: 46.875em) {
@@ -117,6 +118,7 @@ h1 {
 h2 {
   font-size: 1.625rem;
   margin-bottom: 0.5rem;
+  padding-top: 3vmax;
 }
 
 @media (min-width: 46.875em) {
@@ -124,12 +126,14 @@ h2 {
 h2 {
     font-size: 2rem;
     margin-bottom: 1rem;
+    padding-bottom: 5vmax;
 }
   }
 
 h3 {
   font-size: 1.375rem;
   margin-bottom: 0.5rem;
+  padding-top: 3vmax;
 }
 
 @media (min-width: 46.875em) {
@@ -237,7 +241,7 @@ blockquote p cite {
 }
 
 a {
-  color: #67002D;
+  color: #67002d;
   text-decoration: underline;
   -webkit-text-decoration-skip: ink;
   text-decoration-skip-ink: auto;
@@ -479,9 +483,12 @@ a:active, a:focus {
         width: 100%;
         padding: 16px;
         margin-bottom: 16px;
-        background: #44237a;
-        color: #f1edea;
+        background: #f1edea;
+        color: #44237a;
         border-radius: 5px;
+        border-style: solid;
+        border-width: 1px;
+        border-color: #44237a;
     }
 
     @media (min-width: 60em) {
