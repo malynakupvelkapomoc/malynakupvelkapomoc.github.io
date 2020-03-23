@@ -6,7 +6,15 @@
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
+### BelovedShop
+#### Kurátorský výběr organických a zodpovědných značek. Zaměřujeme se na beauty, jógu a aromaterapii.
+#### Výše ztráty k 23.3.2020: desetitisíce
 
+Forma pomoci: Udělá nám radost každý nákup produktu nebo dárkového poukazu.
+
+Webové stránky: [belovedshop.cz](https://belovedshop.cz/)
+
+Instagram/Facebook: [belovedshop.cz](https://www.instagram.com/belovedshop.cz/?hl=cs)
 
 ### Harddecore / Josefína Bakošová
 #### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
