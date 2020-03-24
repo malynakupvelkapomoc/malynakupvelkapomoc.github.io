@@ -23,9 +23,9 @@ Instagram/Facebook: [bylineo_kosmetika](https://www.instagram.com/bylineo_kosmet
 
 Forma pomoci: Nákup na e-shopu
 
-Webové stránky: [chatty.cz](https://wwww.chatty.cz)
+Webové stránky: [chatty.cz](https://www.chatty.cz/)
 
-Instagram/Facebook: [chattyprague](www.instagram.com/chattyprague)
+Instagram/Facebook: [chattyprague](https://www.instagram.com/chattyprague/)
 
 ### CZECHDESIGN Shop & Gallery
 #### Od roku 2003, kdy CZECHDESIGN vznikl díky odhodlání tehdejších studentů designu, je naším cílem nadchnout pro design českou veřejnost i podniky. V roce 2016 jsme spustili e-shop s designovými lahůdkami. Dáváme prostor mladým talentům i známým jménům k tomu, aby svoji tvorbu mohli prodávat, veřejnosti nabízíme to nejlepší z českého designu. Fungujeme lokálně a udržitelně. 
