@@ -1,4 +1,4 @@
-**UPDATE 23.3.2020** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
+**UPDATE 23. 3. 2020** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
 
@@ -9,7 +9,7 @@
 
 ### Les Goodies
 #### Prodej nadčasové a udržitelné módy 
-#### Výše ztráty k 24.3.2020: zatím nevyčíslena
+#### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: Nákup věcí nebo dárkových poukazů na našem e-shopu. 
 
@@ -19,7 +19,7 @@ Instagram/Facebook: [lesgoodiess](https://www.instagram.com/lesgoodiess/)
 
 ### Česká přírodní kosmetika BYLINEO 
 #### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12.brezna jsme denně o min. 10-20 tisíc ztratový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
-#### Výše ztráty k 24.3.2020: Měsíční ztráta je minimálně 200 000 Kč. K dnešnímu dni je ztráta 105 000 tržby (minimálně), režie 38000 Kč, mzdy 60 000 Kč
+#### Výše ztráty k 24. 3. 2020: Měsíční ztráta je minimálně 200 000 Kč. K dnešnímu dni je ztráta 105 000 tržby (minimálně), režie 38000 Kč, mzdy 60 000 Kč
 
 Forma pomoci: Nákupem ručně vyráběné kosmetiky s jedinečným složením. 
 
@@ -29,7 +29,7 @@ Instagram/Facebook: [bylineo_kosmetika](https://www.instagram.com/bylineo_kosmet
 
 ### CHATTY
 #### Návrh a výroba oblečeni, jeans šité na míru
-#### Výše ztráty k 24.3.2020: 150 000
+#### Výše ztráty k 24. 3. 2020: 150 000
 
 Forma pomoci: Nákup na e-shopu
 
@@ -39,7 +39,7 @@ Instagram/Facebook: [chattyprague](https://www.instagram.com/chattyprague/)
 
 ### CZECHDESIGN Shop & Gallery
 #### Od roku 2003, kdy CZECHDESIGN vznikl díky odhodlání tehdejších studentů designu, je naším cílem nadchnout pro design českou veřejnost i podniky. V roce 2016 jsme spustili e-shop s designovými lahůdkami. Dáváme prostor mladým talentům i známým jménům k tomu, aby svoji tvorbu mohli prodávat, veřejnosti nabízíme to nejlepší z českého designu. Fungujeme lokálně a udržitelně. 
-#### Výše ztráty k 24.3.2020: 42 000
+#### Výše ztráty k 24. 3. 2020: 42 000
 
 Forma pomoci: Nákupem produktů nebo voucherů v e-shopu. 
 
@@ -49,7 +49,7 @@ Instagram/Facebook: [czechdesign.cz](https://www.instagram.com/czechdesign.cz/)/
 
 ### Vavavoom perfumery
 #### Prodej niche parfémů a přírodní kosmetiky. Přírodní dekorativní kosmetika, ručně vyráběné svíčky. 
-#### Výše ztráty k 24.3.2020: Zatím nevyčíslena
+#### Výše ztráty k 24. 3. 2020: Zatím nevyčíslena
 
 Nákup na e-shopu. Ke každému nákupu si můžete vybrat vzorky parfémů či kosmetiky. 
 
@@ -59,7 +59,7 @@ Instagram/Facebook: [Vavavoomperfumery](https://www.instagram.com/vavavoomperfum
 
 ### tokyobike
 #### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
-#### Výše ztráty k 23.3.2020: řádově nižší stovky tisíc
+#### Výše ztráty k 23. 3. 2020: řádově nižší stovky tisíc
 
 Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
 
@@ -69,7 +69,7 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ### Zestó
 #### malý e-shop s řeckými designovými produkty, podporujeme řecké lokální designéry a freelancery, všechny produkty jsou udržitelné
-#### Výše ztráty k 23.3.2020: neuvedeno
+#### Výše ztráty k 23. 3. 2020: neuvedeno
 
 Forma pomoci: nákup na e-shopu
 
@@ -79,7 +79,7 @@ Instagram/Facebook: [zestocz](https://www.instagram.com/zestocz/?hl=cs)
 
 ### 100CLASS concept store
 #### obchod zaměřený na lokální módu a design
-#### Výše ztráty k 23.3.2020: 70000
+#### Výše ztráty k 23. 3. 2020: 70000
 
 Forma pomoci: nákup na e-shopu
 
@@ -89,7 +89,7 @@ Instagram/Facebook: [100CLASS_concept_store](https://www.instagram.com/100class_
 
 ### Etikbutik.cz
 #### E-shop s etickou, pomalou módou a veganskou obuví a doplňky. Výdejna a showroom na Praze 2. Protože eko a etik je také šik! <3
-#### Výše ztráty k 23.3.2020: zatím nevyčíslena
+#### Výše ztráty k 23. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: nakup online - z celeho srdce dekujeme!
 
@@ -99,7 +99,7 @@ Instagram/Facebook: [etikbutik.cz](https://www.instagram.com/etikbutik.cz/?hl=cs
 
 ### BelovedShop
 #### Kurátorský výběr organických a zodpovědných značek. Zaměřujeme se na beauty, jógu a aromaterapii.
-#### Výše ztráty k 23.3.2020: desetitisíce
+#### Výše ztráty k 23. 3. 2020: desetitisíce
 
 Forma pomoci: Udělá nám radost každý nákup produktu nebo dárkového poukazu.
 
@@ -109,7 +109,7 @@ Instagram/Facebook: [belovedshop.cz](https://www.instagram.com/belovedshop.cz/?h
 
 ### Harddecore / Josefína Bakošová
 #### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
-#### Výše ztráty k 23.3.2020: 80 000
+#### Výše ztráty k 23. 3. 2020: 80 000
 
 Forma pomoci: Nákup přes e-shop nebo sociální sítě
 
@@ -120,7 +120,7 @@ Instagram/Facebook: [josefinabakosova](https://www.instagram.com/josefinabakosov
 
 ### Rello Il Torrefattore
 #### pražírna kávy
-#### Výše ztráty k 23.3.2020: 50 000
+#### Výše ztráty k 23. 3. 2020: 50 000
 
 Forma pomoci: Objednat rozvoz kávy domů
 
@@ -130,7 +130,7 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ### La femme Mimi
 #### Navrhování a tvorba dámských zerowaste oděvů
-#### Výše ztráty k 23.3.2020: 100 000
+#### Výše ztráty k 23. 3. 2020: 100 000
 
 Forma pomoci: Nákup produktů či voucheru na e-shopu. Máme novou kolekci SS2020!
 
@@ -140,7 +140,7 @@ Instagram/Facebook: [la_femme_mimi_prague](https://www.instagram.com/la_femme_mi
 
 ### LAFORMELA
 #### Navrhování a tvorba módních oděvů
-#### Výše ztráty k 23.3.2020: 100 000
+#### Výše ztráty k 23. 3. 2020: 100 000
 
 Forma pomoci: Nákup produktů přes Instagram. Začátkem dubna představíme zbrusu novou sezónu.
 
