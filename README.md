@@ -15,7 +15,7 @@ Forma pomoci: Nákup cez eshop alebo Instagram s 10% zľavou po zadaní kódu #m
 
 Webové stránky: [buffetclothing.com](https://www.buffetclothing.com/)
 
-Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/) [buffetclothing](https://www.facebook.com/BuffetClothing/)
+Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)/[buffetclothing](https://www.facebook.com/BuffetClothing/)
 
 ### Long Story Short
 #### Restaurace, kavárna, pekárna
