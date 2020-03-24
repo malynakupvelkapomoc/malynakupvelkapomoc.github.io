@@ -6,6 +6,16 @@
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 
+### Vavavoom perfumery
+#### Prodej niche parfémů a přírodní kosmetiky. Přírodní dekorativní kosmetika, ručně vyráběné svíčky. 
+#### Zatím nevyčíslena
+
+Nákup na e-shopu. Ke každému nákupu si můžete vybrat vzorky parfémů či kosmetiky. 
+
+Webové stránky: [vava-voom.cz](https://www.vava-voom.cz/)
+
+Instagram/Facebook: [Vavavoomperfumery](https://www.instagram.com/vavavoomperfumery/)
+
 ### tokyobike
 #### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
 #### Výše ztráty k 23.3.2020: řádově nižší stovky tisíc
