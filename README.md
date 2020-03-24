@@ -89,7 +89,7 @@ Webové stránky: [bylineo.cz](https://www.bylineo.cz)
 Instagram/Facebook: [bylineo_kosmetika](https://www.instagram.com/bylineo_kosmetika/)/[bylineo](https://www.facebook.com/bylineo/)
 
 ### CHATTY
-#### Návrh a výroba oblečeni, jeans šité na míru
+#### Návrh a výroba oblečení, jeans šité na míru
 #### Výše ztráty k 24. 3. 2020: 150 000
 
 Forma pomoci: Nákup na e-shopu
@@ -152,7 +152,7 @@ Instagram/Facebook: [100CLASS_concept_store](https://www.instagram.com/100class_
 #### E-shop s etickou, pomalou módou a veganskou obuví a doplňky. Výdejna a showroom na Praze 2. Protože eko a etik je také šik! <3
 #### Výše ztráty k 23. 3. 2020: zatím nevyčíslena
 
-Forma pomoci: nakup online - z celeho srdce dekujeme!
+Forma pomoci: nákup online - z celého srdce děkujeme!
 
 Webové stránky: [etikbutik.cz](http://www.etikbutik.cz)
 
