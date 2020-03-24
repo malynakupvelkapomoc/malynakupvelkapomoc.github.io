@@ -15,7 +15,7 @@ Forma pomoci: Nákup cez eshop alebo Instagram s 10% zľavou po zadaní kódu #m
 
 Webové stránky: [buffetclothing.com](https://www.buffetclothing.com/)
 
-Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)[buffetclothing](https://www.facebook.com/BuffetClothing/)
+Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/) [buffetclothing](https://www.facebook.com/BuffetClothing/)
 
 ### Long Story Short
 #### Restaurace, kavárna, pekárna
@@ -26,7 +26,7 @@ V případě, že máte zájem o jakýkoliv produkt k okamžitému odběru, ať 
 
 Webové stránky: [longstoryshort.cz](https://www.longstoryshort.cz)
 
-Instagram/Facebook: [longstoryshorthostel] (https://www.instagram.com/longstoryshorthostel/?hl=cs) [Long Story Short](https://www.facebook.com/Long-Story-Short-Eatery-Bakery-100524508106256/)
+Instagram/Facebook: [longstoryshorthostel](https://www.instagram.com/longstoryshorthostel/?hl=cs) [Long Story Short](https://www.facebook.com/Long-Story-Short-Eatery-Bakery-100524508106256/)
 
 ### Jóga Letná
 #### Provozujeme lekce jógy a pilates
@@ -46,7 +46,7 @@ Forma pomoci: Nákup voucheru, šperk spolu vymyslíme, až to odezní, nebo ná
 
 Webové stránky: [michalkadanik.cz](https://michalkadanik.cz/)
 
-Instagram/Facebook: [kadanik_](https://www.instagram.com/kadanik_/)[papelote](https://www.facebook.com/papelote.cz/)
+Instagram/Facebook: [kadanik_](https://www.instagram.com/kadanik_/)
 
 ### Papelote
 #### Papírenská dílna a grafické studio, provoz kamenného obchodu
