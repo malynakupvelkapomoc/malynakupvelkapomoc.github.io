@@ -7,6 +7,26 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### Česká přírodní kosmetika BYLINEO 
+#### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12.brezna jsme denně o min. 10-20 tisíc ztratový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
+#### Výše ztráty k 24.3.2020: min. 105 000
+
+Forma pomoci: Nákupem ručně vyráběné kosmetiky s jedinečným složením. 
+
+Webové stránky: [bylineo.cz](https://www.bylineo.cz)
+
+Instagram/Facebook: [bylineo_kosmetika](https://www.instagram.com/bylineo_kosmetika/)/[bylineo](https://www.facebook.com/bylineo/)
+
+### CHATTY
+#### Návrh a výroba oblečeni, jeans šité na míru
+#### Výše ztráty k 24.3.2020: 150 000
+
+Forma pomoci: Nákup na e-shopu
+
+Webové stránky: [chatty.cz](https://wwww.chatty.cz)
+
+Instagram/Facebook: [chattyprague](www.instagram.com/chattyprague)
+
 ### CZECHDESIGN Shop & Gallery
 #### Od roku 2003, kdy CZECHDESIGN vznikl díky odhodlání tehdejších studentů designu, je naším cílem nadchnout pro design českou veřejnost i podniky. V roce 2016 jsme spustili e-shop s designovými lahůdkami. Dáváme prostor mladým talentům i známým jménům k tomu, aby svoji tvorbu mohli prodávat, veřejnosti nabízíme to nejlepší z českého designu. Fungujeme lokálně a udržitelně. 
 #### Výše ztráty k 24.3.2020: 42 000
@@ -19,13 +39,13 @@ Instagram/Facebook: [czechdesign.cz](https://www.instagram.com/czechdesign.cz/)/
 
 ### Vavavoom perfumery
 #### Prodej niche parfémů a přírodní kosmetiky. Přírodní dekorativní kosmetika, ručně vyráběné svíčky. 
-#### Výše ztráty k 23.3.2020: Zatím nevyčíslena
+#### Výše ztráty k 24.3.2020: Zatím nevyčíslena
 
 Nákup na e-shopu. Ke každému nákupu si můžete vybrat vzorky parfémů či kosmetiky. 
 
 Webové stránky: [vava-voom.cz](https://www.vava-voom.cz/)
 
-Instagram/Facebook: [Vavavoomperfumery](https://www.instagram.com/vavavoomperfumery/)
+Instagram/Facebook: [Vavavoomperfumery](https://www.instagram.com/vavavoomperfumery/)/[Vavavoomperfumery](https://www.facebook.com/Vavavoomperfumery/)
 
 ### tokyobike
 #### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
