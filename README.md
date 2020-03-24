@@ -18,7 +18,7 @@ Webové stránky: [lesgoodies.com](https://lesgoodies.com/)
 Instagram/Facebook: [lesgoodiess](https://www.instagram.com/lesgoodiess/)
 
 ### Česká přírodní kosmetika BYLINEO 
-#### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12.brezna jsme denně o min. 10-20 tisíc ztratový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
+#### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12. brezna jsme denně o min. 10-20 tisíc ztrátový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
 #### Výše ztráty k 24. 3. 2020: Měsíční ztráta je minimálně 200 000 Kč. K dnešnímu dni je ztráta 105 000 tržby (minimálně), režie 38000 Kč, mzdy 60 000 Kč
 
 Forma pomoci: Nákupem ručně vyráběné kosmetiky s jedinečným složením. 
