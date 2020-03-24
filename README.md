@@ -5,11 +5,21 @@
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci 👇
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
-## 👇
+👇
+
+### CZECHDESIGN Shop & Gallery
+#### Od roku 2003, kdy CZECHDESIGN vznikl díky odhodlání tehdejších studentů designu, je naším cílem nadchnout pro design českou veřejnost i podniky. V roce 2016 jsme spustili e-shop s designovými lahůdkami. Dáváme prostor mladým talentům i známým jménům k tomu, aby svoji tvorbu mohli prodávat, veřejnosti nabízíme to nejlepší z českého designu. Fungujeme lokálně a udržitelně. 
+#### Výše ztráty k 24.3.2020: 42 000
+
+Forma pomoci: Nákupem produktů nebo voucherů v e-shopu. 
+
+Webové stránky: [shop.czechdesign.cz](https://shop.czechdesign.cz/)
+
+Instagram/Facebook: [czechdesign.cz](https://www.instagram.com/czechdesign.cz/)/[CZECHDESIGN.CZ](https://www.facebook.com/CZECHDESIGN.CZ/)
 
 ### Vavavoom perfumery
 #### Prodej niche parfémů a přírodní kosmetiky. Přírodní dekorativní kosmetika, ručně vyráběné svíčky. 
-#### Zatím nevyčíslena
+#### Výše ztráty k 23.3.2020: Zatím nevyčíslena
 
 Nákup na e-shopu. Ke každému nákupu si můžete vybrat vzorky parfémů či kosmetiky. 
 
