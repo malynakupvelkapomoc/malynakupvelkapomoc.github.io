@@ -7,6 +7,16 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### Les Goodies
+#### Prodej nadčasové a udržitelné módy 
+#### Výše ztráty k 24.3.2020: zatím nevyčíslena
+
+Forma pomoci: Nákup věcí nebo dárkových poukazů na našem e-shopu. 
+
+Webové stránky: [lesgoodies.com](https://lesgoodies.com/)
+
+Instagram/Facebook: [lesgoodiess](https://www.instagram.com/lesgoodiess/)
+
 ### Česká přírodní kosmetika BYLINEO 
 #### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12.brezna jsme denně o min. 10-20 tisíc ztratový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
 #### Výše ztráty k 24.3.2020: min. 105 000
