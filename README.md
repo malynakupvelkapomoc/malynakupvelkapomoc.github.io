@@ -7,6 +7,16 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### EsterJosefina
+#### Kreativní duo Ester a Josefina, módní značka, influencerky
+#### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nepřestávejte nás prosím sledovat, nakupovat dál online a zůstaňte v dobré náladě doma.
+
+Webové stránky: [esterjosefina.com](https://esterajosefina.com/)
+
+Instagram/Facebook: Instagram/Facebook: [esterajosefina](https://www.instagram.com/esterajosefina/?hl=cs)/[esterajosefina](https://www.facebook.com/esterajosefina/)
+
 ### Les Goodies
 #### Prodej nadčasové a udržitelné módy 
 #### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
