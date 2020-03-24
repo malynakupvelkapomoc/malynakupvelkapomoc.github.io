@@ -21,7 +21,7 @@ Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)/
 #### Restaurace, kavárna, pekárna
 #### Výše ztráty k 24. 3. 2020: 824 407 Kč 
 
-Forma pomoci: "Naši milí zákaznici, děláme všechno proto, abychom pro vás přichystali co nejlepší servis, a také neztratili kontakt s Vámi i v takto ztížených podmínkách.  Spustili jsme roznáškový servis, díky kterému si můžete objednat z dostupné nabídky našich jídel a produktů z pohodlí vašeho domova.
+Forma pomoci: Naši milí zákaznici, děláme všechno proto, abychom pro vás přichystali co nejlepší servis, a také neztratili kontakt s Vámi i v takto ztížených podmínkách.  Spustili jsme roznáškový servis, díky kterému si můžete objednat z dostupné nabídky našich jídel a produktů z pohodlí vašeho domova.
 V případě, že máte zájem o jakýkoliv produkt k okamžitému odběru, ať už se jedná o výbornou kávu, nebo čerstvě upečený chleba,  v našem cooking baru zůstává otevřené “hladové okno”. Všechny produkty jsou určeny striktně pro nákup s sebou. 
 
 Webové stránky: [longstoryshort.cz](https://www.longstoryshort.cz)
