@@ -26,7 +26,7 @@ V případě, že máte zájem o jakýkoliv produkt k okamžitému odběru, ať 
 
 Webové stránky: [longstoryshort.cz](https://www.longstoryshort.cz)
 
-Instagram/Facebook: [longstoryshorthostel](https://www.instagram.com/longstoryshorthostel/?hl=cs) [Long Story Short](https://www.facebook.com/Long-Story-Short-Eatery-Bakery-100524508106256/)
+Instagram/Facebook: [longstoryshorthostel](https://www.instagram.com/longstoryshorthostel/?hl=cs)/[Long Story Short](https://www.facebook.com/Long-Story-Short-Eatery-Bakery-100524508106256/)
 
 ### Jóga Letná
 #### Provozujeme lekce jógy a pilates
