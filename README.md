@@ -7,6 +7,57 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### Buffet
+#### Navrhovanie a tvorba dámskej a pánskej módy
+#### Výše ztráty k 24. 3. 2020: 100 000
+
+Forma pomoci: Nákup cez eshop alebo Instagram s 10% zľavou po zadaní kódu #malynakupvelkapomoc. Za pár dní predstavíme na Instagrame novú SS20 kolekciu. Poštovné máte zdarma. V mene celého Buffet teamu ďakujeme!
+
+Webové stránky: [buffetclothing.com](https://www.buffetclothing.com/)
+
+Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)[buffetclothing](https://www.facebook.com/BuffetClothing/)
+
+### Long Story Short
+#### Restaurace, kavárna, pekárna
+#### Výše ztráty k 24. 3. 2020: 824 407 Kč 
+
+Forma pomoci: "Naši milí zákaznici, děláme všechno proto, abychom pro vás přichystali co nejlepší servis, a také neztratili kontakt s Vámi i v takto ztížených podmínkách.  Spustili jsme roznáškový servis, díky kterému si můžete objednat z dostupné nabídky našich jídel a produktů z pohodlí vašeho domova.
+V případě, že máte zájem o jakýkoliv produkt k okamžitému odběru, ať už se jedná o výbornou kávu, nebo čerstvě upečený chleba,  v našem cooking baru zůstává otevřené “hladové okno”. Všechny produkty jsou určeny striktně pro nákup s sebou. 
+
+Webové stránky: [longstoryshort.cz](https://www.longstoryshort.cz)
+
+Instagram/Facebook: [longstoryshorthostel] (https://www.instagram.com/longstoryshorthostel/?hl=cs) [Long Story Short](https://www.facebook.com/Long-Story-Short-Eatery-Bakery-100524508106256/)
+
+### Jóga Letná
+#### Provozujeme lekce jógy a pilates
+#### Výše ztráty k 24. 3. 2020: 125 000
+
+Forma pomoci: Lidé nám mohou pomoci tím, že se budou i doma udržovat ve fyzické a psychické pohodě cvičením jógy a to společně s námi! Od doby karantény jsme z úplně offline lekcí jógy v našem studiu přesunuli naše lektory do virtuálního světa. Od doby karantény taky spousta z vás začalo trápit kromě ztráty pohybu i špatná nálada, úzkosti a deprese ze současné situace. S jógou se udržíte nejenom fyzicky fit, ale i mentálně. A nám váš příspěvek pomůže zaplatit nájem a podpořit lektory, kteří pro vás připravují své online lekce.
+
+Webové stránky: [jogaletna.cz](https://www.jogaletna.cz)
+
+Instagram/Facebook: [jogaletna](https://www.instagram.com/jogaletna/)
+
+### Kadaník
+#### Autorská tvorba designových šperků
+#### Výše ztráty k 24. 3. 2020: neuvedeno
+
+Forma pomoci: Nákup voucheru, šperk spolu vymyslíme, až to odezní, nebo nákup hotových šperku na e-shopu.
+
+Webové stránky: [michalkadanik.cz](https://michalkadanik.cz/)
+
+Instagram/Facebook: [kadanik_](https://www.instagram.com/kadanik_/)[papelote](https://www.facebook.com/papelote.cz/)
+
+### Papelote
+#### Papírenská dílna a grafické studio, provoz kamenného obchodu
+#### Výše ztráty k 24. 3. 2020: Předpokládaná výše ztráty ke konci dubna – 1 000 000 Kč 
+
+Forma pomoci: Smyslem papelote vždy bylo a bude přinášet lidem radost, inspirovat, motivovat ke kreativitě a podporovat odvahu a pozitivní myšlení. Rádi bychom v tom pokračovali i nadále a proto budeme vděčni za jakoukoliv drobnou podporu z vaší strany, za každou objednávku na našem eshopu, který zůstává v provozu s možností doručení domů či možností poslat někomu z vašich blízkých nebo přátelů náš produkt jako dárek z bezpečí domova. 
+
+Webové stránky: [papelote.cz](https://www.papelote.cz/)
+
+Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papelote](https://www.facebook.com/papelote.cz/)
+
 ### EsterJosefina
 #### Kreativní duo Ester a Josefina, módní značka, influencerky
 #### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
