@@ -124,7 +124,7 @@ Instagram/Facebook: [Vavavoomperfumery](https://www.instagram.com/vavavoomperfum
 
 Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
 
-Webové stránky: [tokyobike.cz](https://www.tokyobike.cz/)
+Webové stránky: [tokyobike.cz](https://www.urbane.cz)
 
 Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
