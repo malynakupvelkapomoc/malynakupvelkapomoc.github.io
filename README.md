@@ -5,7 +5,7 @@
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci 👇
 
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
-👇
+## 👇
 
 ### Vavavoom perfumery
 #### Prodej niche parfémů a přírodní kosmetiky. Přírodní dekorativní kosmetika, ručně vyráběné svíčky. 
