@@ -107,7 +107,7 @@ Webové stránky: [belovedshop.cz](https://belovedshop.cz/)
 
 Instagram/Facebook: [belovedshop.cz](https://www.instagram.com/belovedshop.cz/?hl=cs)
 
-### Harddecore / Josefína Bakošová
+### Harddecore / Josefina Bakošová
 #### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
 #### Výše ztráty k 23. 3. 2020: 80 000
 
