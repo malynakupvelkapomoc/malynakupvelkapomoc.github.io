@@ -15,7 +15,7 @@ Forma pomoci: Nepřestávejte nás prosím sledovat, nakupovat dál online a zů
 
 Webové stránky: [esterjosefina.com](https://esterajosefina.com/)
 
-Instagram/Facebook: Instagram/Facebook: [esterajosefina](https://www.instagram.com/esterajosefina/?hl=cs)/[esterajosefina](https://www.facebook.com/esterajosefina/)
+Instagram/Facebook: [esterajosefina](https://www.instagram.com/esterajosefina/?hl=cs)/[esterajosefina](https://www.facebook.com/esterajosefina/)
 
 ### Les Goodies
 #### Prodej nadčasové a udržitelné módy 
