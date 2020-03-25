@@ -31,7 +31,7 @@ Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalho
 #### brýlařské studio
 #### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
 
-10% sleva na všechny modely našich brýlí a poštovné zdarma. K dispozici máme i dárkové vouchery. 
+Noste roušku a k tomu brýle #malynakupvelkapomoc, 10% sleva na všechny modely našich obrub a poštovné zdarma. K dispozici máme i dárkové vouchery. Brýle lze osadit i skly proti modrému světlu, podpoř naši dílnu.
 
 Webové stránky: [optiqa.cz](https://www.optiqa.cz/)
 
