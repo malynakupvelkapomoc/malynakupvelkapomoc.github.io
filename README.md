@@ -13,7 +13,7 @@
 
 Budeme rádi, pokud nás podpoříte koupí rostlin na našem e-shopu. Pokud do objednávky zadáte kód "#shopsmallhelpbig", dostanete navíc 10% slevu. S přáteli potom můžete sdílet odkaz na naše sociální sítě i radost z rostlinek, které si pořídíte. 
 
-Webové stránky: [haenke](http://www.haenke.co)
+Webové stránky: [haenke.co](http://www.haenke.co)
 
 Instagram/Facebook: [haenke](https://www.instagram.com/haenke/)/[haenke](facebook.com/haenkecz)
 
