@@ -25,7 +25,7 @@ Instagram/Facebook: [haenke](https://www.instagram.com/haenke/)/[haenke](faceboo
 
 Webové stránky: [eliskalhotska.cz](https://www.eliskalhotska.cz/)
 
-Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalhotskajewellery/)/[eliska lhotska](https://www.facebook.com/lhotska/)
+Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalhotskajewellery/)/[Eliska Lhotska](https://www.facebook.com/lhotska/)
 
 ### optiqa
 #### brýlařské studio
@@ -35,7 +35,7 @@ Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalho
 
 Webové stránky: [optiqa.cz](https://www.optiqa.cz/)
 
-Instagram/Facebook: [optiqa](https://www.instagram.com/optiqa)/[optiqa eyewear](https://www.facebook.com/optiqaeyewear/)
+Instagram/Facebook: [optiqa](https://www.instagram.com/optiqa)/[optiqa](https://www.facebook.com/optiqaeyewear/)
 
 ### young_block
 #### Polygrafie a knihařská činnost
@@ -45,7 +45,7 @@ Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek ve formě oby
 
 Webové stránky: [youngblock.cz](https://www.youngblock.cz)
 
-Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[youngblock](https://www.facebook.com/youngblock.cz/)
+Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young_block](https://www.facebook.com/youngblock.cz/)
 
 ### youngprimitive
 #### Česká street fashion značka
