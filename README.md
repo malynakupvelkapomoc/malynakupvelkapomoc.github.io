@@ -7,6 +7,66 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### Haenke
+#### Navrhujeme instalace plné zeleně, prodáváme rostliny a z této činnosti částečně hradíme výzkum v oblasti léčivých rostlin i další vzdělávací a neziskové aktivity.
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+Budeme rádi, pokud nás podpoříte koupí rostlin na našem e-shopu. Pokud do objednávky zadáte kód "#shopsmallhelpbig", dostanete navíc 10% slevu. S přáteli potom můžete sdílet odkaz na naše sociální sítě i radost z rostlinek, které si pořídíte. 
+
+Webové stránky: [haenke](http://www.haenke.co)
+
+Instagram/Facebook: [haenke](https://www.instagram.com/haenke/)/[haenke](facebook.com/haenkecz)
+
+### Eliška Lhotská jewellery
+#### šperk
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i slevu 10% po zadání kódu #malynakupvelkapomoc. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
+
+Webové stránky: [eliskalhotska.cz](https://www.eliskalhotska.cz/)
+
+Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalhotskajewellery/)/[eliska lhotska](https://www.facebook.com/lhotska/)
+
+### optiqa
+#### brýlařské studio
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+10% sleva na všechny modely našich brýlí a poštovné zdarma. K dispozici máme i dárkové vouchery. 
+
+Webové stránky: [optiqa.cz](https://www.optiqa.cz/)
+
+Instagram/Facebook: [optiqa](https://www.instagram.com/optiqa)/[optiqa eyewear](https://www.facebook.com/optiqaeyewear/)
+
+### young_block
+#### Polygrafie a knihařská činnost
+#### Výše ztráty k 25. 3. 2020: 450 000 CZK
+
+Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek ve formě obyčejné tužky a papírových doplňků pro efektivní plánování a tvorbu fotoalb, z každého nákupu brzy 50 CZK poputuje na dobrou věc v místě našeho podnikání (aktuálně jednáme s Centrem sociální pomoci, zatím víc konkrétního nemáme)
+
+Webové stránky: [youngblock.cz](https://www.youngblock.cz)
+
+Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[youngblock](https://www.facebook.com/youngblock.cz/)
+
+### youngprimitive
+#### Česká street fashion značka
+#### Výše ztráty k 25. 3. 2020: 385 000
+
+Pro podporovatele a věrné zákazníky máme slevu 10% při zadání promokódu: malynakupvelkapomoc
+
+Webové stránky: [youngprimitive.cz](https://www.youngprimitive.cz)
+
+Instagram/Facebook: [youngrimitive](https://www.instagram.com/youngprimitive/)
+
+### Nebe počká
+#### Veganská kavárna
+#### Výše ztráty k 25. 3. 2020: 85 000
+
+Děláme každé ráno kávu pro přerovskou nemocnici, nabízíme zdarma kafe pro strážníky, hasiče a další. Každý nákup zrna, kávy, malé spropitné bude použito na náklady na provoz a další podporu těch, kteří to potřebují více!
+
+Webové stránky: [nebepocka.cz](http://nebepocka.cz/)
+
+Instagram/Facebook: [nebepocka](https://www.instagram.com/nebepocka/)/[nebepocka](https://www.facebook.com/nebepocka/)
+
 ### In August Company
 #### Navrhujeme a ručně vyrábíme kuchyňské, interiové a textilní doplňky
 #### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
