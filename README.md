@@ -7,6 +7,16 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### In August Company
+#### Navrhujeme a ručně vyrábíme kuchyňské, interiové a textilní doplňky
+#### Výše ztráty k 24. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Samozřejmě nákup na našem e-shopu nás vždy potěší. Jako poděkování jsme připravili kód s 10% slevou po zadání #malynakupvelkapomoc. Ale udělá nám radost i sdílení na Instagramu a Facebooku. Děkujeme a držte se!
+
+Webové stránky: [inaugustcompany.com](http://inaugustcompany.com)
+
+Instagram/Facebook: [inaugust.co](https://www.instagram.com/inaugust.co/)/[inaugust.co](https://www.facebook.com/inaugust.co/)
+
 ### Buffet
 #### Navrhovanie a tvorba dámskej a pánskej módy
 #### Výše ztráty k 24. 3. 2020: 100 000
