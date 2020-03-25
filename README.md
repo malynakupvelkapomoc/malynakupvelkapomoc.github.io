@@ -21,7 +21,7 @@ Instagram/Facebook: [haenke](https://www.instagram.com/haenke/)/[haenke](faceboo
 #### šperk
 #### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
 
-Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i SLEVU 10% po zadání kódu: reknitosperkem. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
+Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i SLEVU 10% po zadání kódu: REKNITOSPERKEM. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
 
 Webové stránky: [eliskalhotska.cz](https://www.eliskalhotska.cz/)
 
