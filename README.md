@@ -9,6 +9,59 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Kartotéka
+#### Papírnictví inspirované designem z celého světa, nabízíme výběr produktů pocházející z malých tokijských studií až po tradiční, dlouho zavedené evropské značky.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+V době celostátní karantény (zatím vyhlášené do 1. dubna) nabízíme slevu 25 % pro všechny, kdo budou souhlasit s doručením balíčku po jejím uplynutí. 
+Balíčky je možné expedovat i standardně, pokud někdo spěchá například na dárek. Na takové nákupy však akce neplatí - ale můžete zkusit kód #malynakupvelkapomoc, za který dostanete 10% slevu na nákup a odeslání ihned. 
+
+Děkujeme moc a moc, všem přejeme pevné zdraví! Lenka & Petr
+
+Webové stránky: [kartoteka.store](https://kartoteka.store/)
+
+Instagram: [kartoteka_store](https://www.instagram.com/kartoteka_store/)
+
+### COPE
+####  E-shop s udržitelným oblečením.
+#### Výše ztráty k 26. 3. 2020: 45 000
+
+Nákup na e-shopu.
+
+Webové stránky: [cope.cz](https://www.cope.cz/cs/)
+
+Instagram: [cope_cz](https://www.instagram.com/cope_cz/)
+
+### studio KAKAO
+####  Jsme produktové, kreativní studio zaměřené na udržitelný design či recyklaci. V pražských Dejvicích máme studio kde nejen že pracujeme ale pořádáme workshopy, pop-upy či malé eventy pro veřejnost jako například SWAP pokojovek. Najdete nás také na Design marketu a SLOU days, které se bohužel v současné situaci nemohou konat. Ale těšíme se!
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Po Praze a okolí Hradce Králové doručujeme osobně, zdarma. Krásně zabalené zboží společně s pokojovou rostlinou navíc na Vás bude čekat před Vašimi dveřmi.
+
+Webové stránky: [studiokakao.com](https://studiokakao.com/)
+
+Instagram: [studio.kakao](https://www.instagram.com/studio.kakao)
+
+### Charliee
+####  Originální šperky z chirurgické oceli - navržené, vyrobené a tepané s láskou podle tradičních šperkařských postupů rodinnou značkou Charliee.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Podpoříte nás nákupem na e-shopu, či sledováním našich sociálních sítí.
+
+Webové stránky: [charliee.cz](http://www.charliee.cz)
+
+Instagram/Facebook: [charliee.cz](https://www.instagram.com/charliee.cz/)/[Charliee]( https://www.facebook.com/Charlieecz/)
+
+### Daily
+####  Při tvorbě vycházím z koloběhu ročních období, dostupnosti a rozmanitosti přírodních darů. Tvořím s ohledem na přírodu a bez zbytečného odpadu. Mým snem je zachytit pomíjivou krásu přírody, aby vám dělala radost denně.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Na našem webu nabízíme vouchery na kytice a workshopy a květinové předplatné za výhodnější cenu. Vouchery jsou platné jeden rok a poslouží i jako krásný dárek. Poštovné je zdarma.
+
+Webové stránky: [atelierdaily.cz](https://www.atelierdaily.cz/)
+
+Instagram: [atelierdaily](https://instagram.com/atelierdaily?igshid=x64n6yrxu7ae)
+
 ### Nastassia Aleinikava studio
 #### Výroba limitovaných edic šperků z drahých kovů a brýlí na míru.
 #### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
@@ -17,7 +70,7 @@ Nákup šperků, které jsou skladem na e-shopu, po dobu karantény doprava je z
 
 Webové stránky: [nastassiaaleinikava.com)](https://shop.nastassiaaleinikava.com)
 
-Facebook: [nastassiaaleinikava](https://www.instagram.com/nastassiaaleinikava/)
+Instagram: [nastassiaaleinikava](https://www.instagram.com/nastassiaaleinikava/)
 
 ### Showroom.
 #### Sdileny Showroom a prodejna osmi designerů
@@ -27,7 +80,7 @@ Podpora našich designerů na e-shope
 
 Webové stránky: [showroomdot.cz](http://showroomdot.cz/)
 
-Facebook: [showroomdot](https://www.instagram.com/showroomdot/)[ShowroomDot](https://www.facebook.com/ShowroomDot/)
+Instagram/Facebook: [showroomdot](https://www.instagram.com/showroomdot/)[ShowroomDot](https://www.facebook.com/ShowroomDot/)
 
 ### Majestick
 #### Navrhujeme a vyrábíme samolepky, interiérové dekorace a doplňky. 
@@ -37,7 +90,7 @@ Každá objednávka na našem e-shopu nám udělá velkou radost. Pomůže nám 
 
 Webové stránky: [majestick.cz](http://majestick.cz/)
 
-Facebook: [studiomajestick](https://www.instagram.com/studiomajestick/)[majestick](https://www.facebook.com/www.majestick.cz/) 
+Instagram/Facebook: [studiomajestick](https://www.instagram.com/studiomajestick/)[majestick](https://www.facebook.com/www.majestick.cz/) 
 
 ### SRNA
 #### Jsme ekologický a designový projekt s názvem SRNA (Sklo Recyklace Nápad Alchymie), který se zabývá recyklací skla. Dáváme starým láhvím nový život. Pomocí tradičních sklářských metod je přetváříme ve vlastní originální design. Naše výrobky jsou vyráběny ručně, s úctou k přírodě a s myšlenkou trvale udržitelného rozvoje.
@@ -50,7 +103,7 @@ Děkujeme a přejeme co nejvíce zdraví a dobré nálady.
 
 Webové stránky: [srna.cz](https://srna.cz/)
 
-Facebook: [srna](https://www.instagram.com/srna.cz/)[srna](https://www.facebook.com/srna.cz/) 
+Instagram/Facebook: [srna](https://www.instagram.com/srna.cz/)[srna](https://www.facebook.com/srna.cz/) 
 
 ### ONEDAY
 #### návrhářská činnost, výroba oblečení 
@@ -60,7 +113,7 @@ Nákup přes eshop s 10% slevou po zadání kódu #malynakupvelkapomoc. Doprava 
 
 Webové stránky: [one-day.cz](https://www.one-day.cz/)
 
-Facebook: [oneday](https://www.instagram.com/oneday.cz/)[oneday](https://www.facebook.com/oneday.cz/) 
+Instagram/Facebook: [oneday](https://www.instagram.com/oneday.cz/)[oneday](https://www.facebook.com/oneday.cz/) 
 
 ### Tereza Rosalie Kladošová
 #### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
@@ -70,7 +123,7 @@ Pomoci můžete nákupem oděvu, který máme v nabídce. Pokud si nevyberete m�
 
 Webové stránky: [terezarosaliekladosova.cz](http://terezarosaliekladosova.cz/)
 
-Facebook: [terezarosaliekladosova](https://www.instagram.com/terezarosaliekladosova/?hl=cs)[Tereza Rosalie Kladosova](https://www.facebook.com/terezarosaliekladosova/) 
+Instagram/Facebook: [terezarosaliekladosova](https://www.instagram.com/terezarosaliekladosova/?hl=cs)[Tereza Rosalie Kladosova](https://www.facebook.com/terezarosaliekladosova/) 
 
 ### Vinotéka U sousedů#1
 #### Prodej vín, posezení u vína s drobným občerstvením
