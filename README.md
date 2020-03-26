@@ -1,4 +1,4 @@
-**UPDATE 23. 3. 2020** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
+**UPDATE 26. 3. 2020** Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
 
@@ -56,17 +56,6 @@ Forma pomoci: Na e-shopu si můžete vybrat košili na míru nebo jiný produkt 
 Webové stránky: [shop.hanafrisonsova.com](https://shop.hanafrisonsova.com/)
 
 Instagram/Facebook: [hanafrisonsova](https://www.instagram.com/hanafrisonsova/)/[hanafrisonsova](https://www.facebook.com/hanafrisonsova)
-
-### Zualu design
-#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
-#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
-
-Forma pomoci: Dopravné zdarma při nákupu nad 500,- Kč, která platí i pro zakázky na míru! 
-A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Protože Vám přijde originální český šperk s rodokmenem, kterým potěšíte nejen sebe, ale i mě... A třeba i někoho, koho tímto kouskem v této těžké době obdarujete - právě teď je radost a pozitivní myšlení nejvíce potřeba! Podpořte udržitelnou tvorbu a předejte kousek naděje, že sen přežije! ♡ Protože #slowjewellery přeci musí přežít! Děkujeme za jakoukoli podporu ♡ 
-
-Webové stránky: [fler.cz/zualu-design](https://www.fler.cz/zualu-design)
-
-Facebook: [zualudesign](https://www.facebook.com/Zualudesign)
 
 ### Haenke
 #### Navrhujeme instalace plné zeleně, prodáváme rostliny a z této činnosti částečně hradíme výzkum v oblasti léčivých rostlin i další vzdělávací a neziskové aktivity.
