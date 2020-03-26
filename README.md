@@ -1,4 +1,5 @@
 **UPDATE 26. 3. 2020** 
+**Evidujeme 37 firem se ztrátou 4 092 407 korun, 11 firem své ztráty nedokáže vyčíslit.**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +8,69 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### Nastassia Aleinikava studio
+#### Výroba limitovaných edic šperků z drahých kovů a brýlí na míru.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Nákup šperků, které jsou skladem na e-shopu, po dobu karantény doprava je zdarma. 
+
+Webové stránky: [nastassiaaleinikava.com)](https://shop.nastassiaaleinikava.com)
+
+Facebook: [nastassiaaleinikava](https://www.instagram.com/nastassiaaleinikava/)
+
+### Showroom.
+#### Sdileny Showroom a prodejna osmi designerů
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Podpora našich designerů na e-shope
+
+Webové stránky: [showroomdot.cz](http://showroomdot.cz/)
+
+Facebook: [showroomdot](https://www.instagram.com/showroomdot/)[ShowroomDot](https://www.facebook.com/ShowroomDot/)
+
+### Majestick
+#### Navrhujeme a vyrábíme samolepky, interiérové dekorace a doplňky. 
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Každá objednávka na našem e-shopu nám udělá velkou radost. Pomůže nám i sdílení na sociálních sítích. Děkujeme za podporu
+
+Webové stránky: [majestick.cz](http://majestick.cz/)
+
+Facebook: [studiomajestick](https://www.instagram.com/studiomajestick/)[majestick](https://www.facebook.com/www.majestick.cz/) 
+
+### SRNA
+#### Jsme ekologický a designový projekt s názvem SRNA (Sklo Recyklace Nápad Alchymie), který se zabývá recyklací skla. Dáváme starým láhvím nový život. Pomocí tradičních sklářských metod je přetváříme ve vlastní originální design. Naše výrobky jsou vyráběny ručně, s úctou k přírodě a s myšlenkou trvale udržitelného rozvoje.
+#### Výše ztráty k 26. 3. 2020: přibližně 150000
+
+Nejvíce nás můžete podpořit nákupem našich výrobků přes náš internetový obchod, kde jsme pro Vás zlevnili poštovné i některé zboží.
+Díky Vám budeme moci alespoň částečně dál pracovat, platit nájem naší dílny a doufat, že se zase brzy osobně setkáme na některém z trhů.
+Navíc nám svou podporou umožníte se i nadále věnovat šití roušek pro potřebné.
+Děkujeme a přejeme co nejvíce zdraví a dobré nálady.
+
+Webové stránky: [srna.cz](https://srna.cz/)
+
+Facebook: [srna](https://www.instagram.com/srna.cz/)[srna](https://www.facebook.com/srna.cz/) 
+
+### ONEDAY
+#### návrhářská činnost, výroba oblečení 
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Nákup přes eshop s 10% slevou po zadání kódu #malynakupvelkapomoc. Doprava a vrácení nebo výměna zdarma. Sledujte nás dál na instagramu a faceboku, máme pro vás připravené jarní novinky. Děkujeme vaše Oneday
+
+Webové stránky: [one-day.cz](https://www.one-day.cz/)
+
+Facebook: [oneday](https://www.instagram.com/oneday.cz/)[oneday](https://www.facebook.com/oneday.cz/) 
+
+### Tereza Rosalie Kladošová
+#### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Pomoci můžete nákupem oděvu, který máme v nabídce. Pokud si nevyberete můžeme se domluvit na zakázkové výrobě nebo voucheru. Bohužel nemáme ještě e-shop, ale ráda pošlu katalog s produkty. Kontaktujte mne na hello@terezarosaliekladosova.cz na instagramu nebo na facebooku. Jako poděkování nabízím poštovné zdarma. Děkuji Vám za jakoukoliv podporu i kávu do ateliéru oceníme :)))
+
+Webové stránky: [terezarosaliekladosova.cz](http://terezarosaliekladosova.cz/)
+
+Facebook: [terezarosaliekladosova](https://www.instagram.com/terezarosaliekladosova/?hl=cs)[Tereza Rosalie Kladosova](https://www.facebook.com/terezarosaliekladosova/) 
 
 ### Vinotéka U sousedů#1
 #### Prodej vín, posezení u vína s drobným občerstvením
