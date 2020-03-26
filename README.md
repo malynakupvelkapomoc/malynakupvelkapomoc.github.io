@@ -7,11 +7,62 @@
 ### Tato stránka navazuje na instagramovou iniciativu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tj. dle obchodního zákona podniky, které zaměstnávají méně než 50 osob a jejich roční obrat nebo bilanční suma roční rozvahy nepřesahuje 10 milionů EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online.
 👇
 
+### KS Textile Art
+#### V mé dílně vzniká poctivý český řemeslný textil, tedy něco, co nám všem v tomto nelehkém období může přinést trochu radosti domů, kde nově trávíme většinu času. 
+#### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Čím pomůžete nejvíc? Nákupem piknikové deky pro ty šťastné chvilky s přáteli v trávě, které jistě brzy přijdou, vlněnou dekou, pod kterou se zachumláte večer s oblíbenou knihou, na kterou nezbýval celou zimu čas, ubrusem, polštářem nebo povlečením z české bavlny anebo dárkovým poukazem, ke kterému vám přidám šálek výborné kávy z náší dvorní kavárničky Zašívárna espresso baru, až si přijdete vybrat svůj nový oblíbený textilní kousek do našeho nuselského obchůdku. Velkou pomoc i úsměv na tváři mi přinese jakýkoli nákup.
+
+Webové stránky: [katerinasoukupova.cz](http://katerinasoukupova.cz)
+
+Instagram/Facebook: [k.soukupova_textileart](https://www.instagram.com/k.soukupova_textileart/)/[kstextileart](https://www.facebook.com/kstextileart/)
+
+### Lucie Trnková Glamstones
+#### Jsem česká designérka, vystudovala jsem uměleckou školu. Vyrábím především šperky a doplňky z drahých kamenů, perel, ze stříbra, zlata a z kůže. Momentálně jsem vyměnila milující šperky za šití roušek, zkrátka věci zbytné za nezbytné. Šiji zdarma do nemocnic, porodnic, pro domovy seniorů a všem, kteří nyní potřebují. Moje tvorba se prodává v Bibloo concept Store a dalších obchůdcích, které jsou samozřejmě nyní uzavřeny. Vyrábím také krásné šperky na zakázku, náramky, prsteny, náušnice či pásky a s možností vygravírování osobního monogramu. Používám kvalitní a přírodní materiál, který zpracovávám do posledního kousíčku. Vznikají tak občas jedinečné kožené magnetky či třeba spony na šátky. Vyrábím v České republice a všechny designy mám patentované. 
+#### Výše ztráty k 26. 3. 2020: více než 50 000
+
+Forma pomoci: Kontaktujte mne prosím přes Instagram. Děkuji. Ráda pro Vás vyrobím okouzlující šperk dle vašeho přání. Jsem přece glamstones / kouzelné/okouzlující kamene :-) A jako dárek váš osobní monogram na vašem novém šperku !!!
+
+Webové stránky: [glamstones.cz](https://glamstones.cz)
+
+Instagram: [lucietrnkova_glamstones](https://instagram.com/lucietrnkova_glamstones)
+
+### Metráž
+#### Jsme nízkoprahová dílna pro ženy v tísnivé sociální situaci. Spolu s českými designéry tyto ženy vytvářejí designové šperky, doplňky a módu. Naše výrobky prodáváme na designových marketech a v koncept storech a také na našem eshopu. 
+#### Výše ztráty k 26. 3. 2020: 40 000
+
+Forma pomoci: Každý náš výrobek má na sobě jméno ženy, která jej vyrobila a které jste nákupem pomohli, protože právě ona dostane část tržby z konkrétního výrobku. K Vaší objednávce dostanete poděkování této ženy a malý vzkaz od ní v této nelehké době.
+
+Webové stránky: [metrazdesign.cz](https://metrazdesign.cz/)
+
+Instagram: [metrazdeisgn](https://www.instagram.com/metrazdesign/)
+
+### Hana Frisonsova
+#### Oděvní designér a šití na zakázku
+#### Výše ztráty k 25. 3. 2020: 60 000
+
+Forma pomoci: Na e-shopu si můžete vybrat košili na míru nebo jiný produkt z nabídky. Také si můžete objednat voucher a domluvíme se individuálně. Postupně budu také do e-shopu přidávat další produkty i ze starších kolekcí. 
+
+Webové stránky: [shop.hanafrisonsova.com](https://shop.hanafrisonsova.com/)
+
+Instagram/Facebook: [hanafrisonsova](https://www.instagram.com/hanafrisonsova/)/[hanafrisonsova](https://www.facebook.com/hanafrisonsova)
+
+### Zualu design
+#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+Forma pomoci: Dopravné zdarma při nákupu nad 500,- Kč, která platí i pro zakázky na míru! 
+A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Protože Vám přijde originální český šperk s rodokmenem, kterým potěšíte nejen sebe, ale i mě... A třeba i někoho, koho tímto kouskem v této těžké době obdarujete - právě teď je radost a pozitivní myšlení nejvíce potřeba! Podpořte udržitelnou tvorbu a předejte kousek naděje, že sen přežije! ♡ Protože #slowjewellery přeci musí přežít! Děkujeme za jakoukoli podporu ♡ 
+
+Webové stránky: [fler.cz/zualu-design](https://www.fler.cz/zualu-design)
+
+Facebook: [zualudesign](https://www.facebook.com/Zualudesign)
+
 ### Haenke
 #### Navrhujeme instalace plné zeleně, prodáváme rostliny a z této činnosti částečně hradíme výzkum v oblasti léčivých rostlin i další vzdělávací a neziskové aktivity.
 #### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
 
-Budeme rádi, pokud nás podpoříte koupí rostlin na našem e-shopu. Pokud do objednávky zadáte kód "#shopsmallhelpbig", dostanete navíc 10% slevu. S přáteli potom můžete sdílet odkaz na naše sociální sítě i radost z rostlinek, které si pořídíte. 
+Forma pomoci: Budeme rádi, pokud nás podpoříte koupí rostlin na našem e-shopu. Pokud do objednávky zadáte kód "#shopsmallhelpbig", dostanete navíc 10% slevu. S přáteli potom můžete sdílet odkaz na naše sociální sítě i radost z rostlinek, které si pořídíte. 
 
 Webové stránky: [haenke.co](http://www.haenke.co)
 
@@ -21,7 +72,7 @@ Instagram/Facebook: [haenke](https://www.instagram.com/haenke/)/[haenke](faceboo
 #### šperk
 #### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
 
-Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i SLEVU 10% po zadání kódu: REKNITOSPERKEM. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
+Forma pomoci: Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i SLEVU 10% po zadání kódu: REKNITOSPERKEM. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
 
 Webové stránky: [eliskalhotska.cz](https://www.eliskalhotska.cz/)
 
@@ -31,7 +82,7 @@ Instagram/Facebook: [eliskalhotskajewellery](https://www.instagram.com/eliskalho
 #### brýlařské studio
 #### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
 
-Noste roušku a k tomu brýle #malynakupvelkapomoc, 10% sleva na všechny modely našich obrub a poštovné zdarma. K dispozici máme i dárkové vouchery. Brýle lze osadit i skly proti modrému světlu, podpoř naši dílnu.
+Forma pomoci: Noste roušku a k tomu brýle #malynakupvelkapomoc, 10% sleva na všechny modely našich obrub a poštovné zdarma. K dispozici máme i dárkové vouchery. Brýle lze osadit i skly proti modrému světlu, podpoř naši dílnu.
 
 Webové stránky: [optiqa.cz](https://www.optiqa.cz/)
 
@@ -41,7 +92,7 @@ Instagram/Facebook: [optiqa](https://www.instagram.com/optiqa)/[optiqa](https://
 #### Polygrafie a knihařská činnost
 #### Výše ztráty k 25. 3. 2020: 450 000 CZK
 
-Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek ve formě obyčejné tužky a papírových doplňků pro efektivní plánování a tvorbu fotoalb, z každého nákupu brzy 50 CZK poputuje na dobrou věc v místě našeho podnikání (aktuálně jednáme s Centrem sociální pomoci, zatím víc konkrétního nemáme)
+Forma pomoci: Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek ve formě obyčejné tužky a papírových doplňků pro efektivní plánování a tvorbu fotoalb, z každého nákupu brzy 50 CZK poputuje na dobrou věc v místě našeho podnikání (aktuálně jednáme s Centrem sociální pomoci, zatím víc konkrétního nemáme)
 
 Webové stránky: [youngblock.cz](https://www.youngblock.cz)
 
@@ -51,7 +102,7 @@ Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young
 #### Česká street fashion značka
 #### Výše ztráty k 25. 3. 2020: 385 000
 
-Pro podporovatele a věrné zákazníky máme slevu 10% při zadání promokódu: malynakupvelkapomoc
+Forma pomoci: Pro podporovatele a věrné zákazníky máme slevu 10% při zadání promokódu: malynakupvelkapomoc
 
 Webové stránky: [youngprimitive.cz](https://www.youngprimitive.cz)
 
@@ -61,7 +112,7 @@ Instagram/Facebook: [youngrimitive](https://www.instagram.com/youngprimitive/)
 #### Veganská kavárna
 #### Výše ztráty k 25. 3. 2020: 85 000
 
-Děláme každé ráno kávu pro přerovskou nemocnici, nabízíme zdarma kafe pro strážníky, hasiče a další. Každý nákup zrna, kávy, malé spropitné bude použito na náklady na provoz a další podporu těch, kteří to potřebují více!
+Forma pomoci: Děláme každé ráno kávu pro přerovskou nemocnici, nabízíme zdarma kafe pro strážníky, hasiče a další. Každý nákup zrna, kávy, malé spropitné bude použito na náklady na provoz a další podporu těch, kteří to potřebují více!
 
 Webové stránky: [nebepocka.cz](http://nebepocka.cz/)
 
