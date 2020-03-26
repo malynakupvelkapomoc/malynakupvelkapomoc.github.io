@@ -1,6 +1,5 @@
 **UPDATE 26. 3. 2020** 
-
-**Evidujeme 37 firem se ztrátou 4 092 407 korun, 11 firem své ztráty nedokáže vyčíslit** 
+Evidujeme 37 firem se ztrátou 4 092 407 korun, 11 firem své ztráty nedokáže vyčíslit
 
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
