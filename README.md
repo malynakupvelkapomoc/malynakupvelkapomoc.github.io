@@ -8,9 +8,101 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### COURAGE
+#### koncept store zaměřený na české návrháře a designery
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: nákupem dárkových poukázek nebo produktů přes stránky fb, instagramu či přes web
+
+Webové stránky: [courage.cz](https://www.courage.cz)
+
+Instagram/Facebook: [courage.zlin](https://instagram.com/courage.zlin/)/[COURAGE](https://m.facebook.com/courage.zlin/)
+
+### Adéla Pečlová
+#### Výroba a prodej šperků, zakázková výroba šperků
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem na mém e-shopu (novou kolekci skrze FB stránky) získáte kousek mého světa a přispějete na to, abych mohla fungovat dál. Finanční pomoc mi mimo jiné pomůže zafinancovat IT support vložení nové kolekce na e-shop. Přijímám zakázkovou výrobu zásnubních a snubních prstenů (foto na IG a FB). Nabízím poštovné zdarma, ručně naskládám krabičku a do hedvábného papíru přiložím osobní vzkaz. Podpora sdílením nebo likem mé práce je také velkou pomocí. Mějte prima dny a načerpejte energii. 
+
+Webové stránky: [adelapeclova.cz](https://adelapeclova.cz/)
+
+Instagram/Facebook: [adelapeclova](https://www.instagram.com/adelapeclova/?hl=cs)/[Adéla Pečlová](https://www.facebook.com/peclova/)
+
+### about studio
+#### Jsme brněnské oděvní studio. Tvoříme nadčasovou a udržitelnou módu pro ženy.
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme rády za jakýkoliv nákup našich oděvů, které prezentujeme na Instagramu a Facebooku. Po letech tvorby na míru jsme se letos rozhodly připravit ucelenou kolekci STÁLÁ. Věříme, že nákup kteréhokoliv našeho kousku oblečení, bude pro vás dobrou investicí. Jako malé poděkování za podporu vám můžeme nabídnout poštovné zdarma a bavlněnou roušku ke každé objednávce. Stačí poslat zprávu přes FB, IG či na mail: about@aboutstudio.cz
+
+Webové stránky: [aboutstudio.cz](https://www.aboutstudio.cz/)
+
+Instagram/Facebook: [about.studio](https://www.instagram.com/about.studio/)/[about studio](https://www.facebook.com/aboutstudio.cz/)
+
+### Kristýna Malovaná jewellery
+#### výroba šperků a design produktů, interiérů a instalací
+#### Výše ztráty k 27. 3. 2020: 40000
+
+Forma pomoci: Nejvíce by mi pomohl nákup přes eshop, zakázková výroba šperků (snubní, zásnubní prsten) a další. U nákupu nad 3000kč nabízím poštovné zdarma po celé ČR. Moc děkuji! 
+
+Webové stránky: [kristynamalovana.com](https://www.kristynamalovana.com/)
+
+Facebook: [Kristýna Malovaná jewellery](https://www.facebook.com/Krist%C3%BDna-Malovan%C3%A1-jewellery-1530537500581713/)
+
+### želé jewellery
+#### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a svojej dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Pred mesiacom sa nám konečne po 3 rokoch tvorby podarilo otvoriť zdieľaný ateliér, ktorý sme museli však ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme radi za akúkoľvek kúpu šperku, ktorý Vám alebo vaším blízkym urobí radosť. Môžte si vybrať z konkrétnej ponuky na webe, alebo Vám s radosťou vyrobíme originálny kúsok na mieru podľa vašich predstáv. Času máme teraz dosť. :) Samozrejme počítajte s poštovným zdarma.
+
+Webové stránky: [zelejewellery.com](https://www.zelejewellery.com/)
+
+Instagram/Facebook: [zele_jelly](https://www.instagram.com/zele_jelly/)/[zele.jelly](https://www.facebook.com/zele.jelly/)
+
+### Dox by Qubus
+#### Dox by Qubus je galerijní obchod situován v Centru současného umění DOX, nabízející sklo, porcelán, šperky, módu a užitý design od předních českých designérů, ale i zahraničních tvůrců.
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Každá objednávka nám pomůže. Aktuálně nabízíme na e-shopu 20% slevu značku QUBUS a 10% na vše ostatní. Zboží odesíláme bez přerušení a možný je také osobní odběr.
+
+Webové stránky: [doxbyqubus.cz](https://www.doxbyqubus.cz/)
+
+Instagram/Facebook: [dox_by_qubus](https://www.instagram.com/dox_by_qubus/)/[Dox By Qubus](https://www.facebook.com/DoxByQubus/?ref=bookmarks)
+
+### Institut módní tvorby
+#### Kurzy oděvní tvorby pro veřejnost.
+#### Výše ztráty k 27. 3. 2020: 160 000
+
+Forma pomoci: V běžném provozu v Institutu probíhají oděvní kurzy, nyní jsme ale propůjčili prostory a veškeré zázemí (včetně materiálů) designerovi Mirkovi Bártovi, který s týmem dobrovolníků IMT šijí zdarma roušky pro potřebné (především personál nemocnic, domovy důchodců aj.). 
+Podpořit nás můžete tím, že donesete našité roušky (a my zajistíme jejich předání), nebo nás podpoříte finančně (na webu nabízíme dárcovské certifikáty). Finance budou použité na dokoupení všech materiálů, galanterie a servis strojů a především abychom po skončení mimořádné situace mohli obnovit standardní provoz pro naše studenty a mohli pokračovat dále.
+#rouskyvsem
+
+Webové stránky: [institutmodnitvorby.cz](https://institutmodnitvorby.cz/)
+
+Instagram/Facebook: [institutmodnitvorby](https://www.instagram.com/institutmodnitvorby/?hl=cs)/[Institut modni tvorby]( https://www.facebook.com/Institut-m%C3%B3dn%C3%AD-tvorby-209892342373645/)
+
+### B TEAM / BOTAS 66
+#### Jsme iniciátoři, designéři a ex-oficiální prodejci české obuvnické značky BOTAS 66.
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme moc rádi, když nás podpoříte a koupíte si svůj zřejmě úplně poslední pár BOTAS 66. Jedině prostřednictvím rychlého doprodeje zásob se nám podaří dotáhnout náš plán a spustit úplně nový projekt, na němž už dlouho pracujeme a který oslavuje český design. Sleva 10% s kódem MALYNAKUPVELKAPOMOC, doprava v ČR zdarma. Děkujeme!
+
+Webové stránky: [bteam.cz](http://www.bteam.cz/)
+
+Instagram/Facebook: [bteamcz](http://instagram.com/bteamcz)/[bteamcz](http://facebook.com/bteamcz)
+
+### Wemove
+#### Česká značka sportovního oblečení pro všechny fanoušky pohybu a aktivního životního stylu.
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup produktů přes náš eshop. Po dobu karantény nabízíme dopravu zdarma. Při zadání kódu #malynakupvelkapomoc dostanete 10% slevu. Děkujeme a přejeme hodně sil. 
+
+Webové stránky: [wemove.cz](https://www.wemove.cz/)
+
+Instagram: [wemove_prague](https://www.instagram.com/wemove_prague/)
+
 ### Prague tailor
 #### Módní návrhářka tvořící slow fashion na míru. Tři roky tvořím designové pánské košile a půl roku pod značkou Petra Györgyová fashion brand vznikají limitované kolekce dámských šatů, overalů, košil a kabátů. Najdete mě v Showroomu Londýnská 38.
-#### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: Možnost nákupu limitovaných kolekcí letních pánských košil a dámské kolekce. Případně se domluvit na zakázce na míru, kterou v příštích pár týdnech zrealizujeme. Možnost nákupu voucheru v hodnotě 1000-3500 Kč. Rozvoz kolekce po Praze zdarma.
 
@@ -20,7 +112,7 @@ Instagram: [prague_tailor](https://www.instagram.com/prague_tailor/),[petra_gyor
 
 ### MAYDA
 #### Česká módní značka
-#### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: Nákup oblečení a dárkových poukazů na našem eshopu, poštovné zdarma
 
@@ -30,7 +122,7 @@ Instagram/Facebook: [mayda.cz](https://www.instagram.com/mayda.cz/)/[maydafashio
 
 ### Bistro Franz
 #### Jsme první bistro v modernim duchu v ČR. Snažime se býti mostem mezi farmáři a civilizací ♡
-#### Výše ztráty k 26. 3. 2020: 380 000
+#### Výše ztráty k 27. 3. 2020: 380 000
 
 Forma pomoci: Nákup jídla či nápoje (rozvoz / take away), koupí dárkového poukazu či vína z archivu.
 
