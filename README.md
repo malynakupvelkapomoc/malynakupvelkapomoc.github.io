@@ -9,11 +9,21 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### MAYDA
+#### Česká módní značka
+#### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup oblečení a dárkových poukazů na našem eshopu, poštovné zdarma
+
+Webové stránky: [mayda.cz](https://www.mayda.cz)
+
+Instagram/Facebook: [mayda.cz](https://www.instagram.com/mayda.cz/)/[maydafashion](https://www.facebook.com/maydafashion)
+
 ### Bistro Franz
 #### Jsme první bistro v modernim duchu v ČR. Snažime se býti mostem mezi farmáři a civilizací ♡
 #### Výše ztráty k 26. 3. 2020: 380 000
 
-Nákup jídla či nápoje (rozvoz / take away), koupí dárkového poukazu či vína z archivu.
+Forma pomoci: Nákup jídla či nápoje (rozvoz / take away), koupí dárkového poukazu či vína z archivu.
 
 Webové stránky: [bistrofranz.cz](https://www.bistrofranz.cz)
 
@@ -23,7 +33,7 @@ Instagram/Facebook: [bistrofranz](instagram.com/bistrofranz)/[bistrofranz](faceb
 #### Online beauty obchod s jedinečnou prírodnou kozmetikou. Veríme v kvalitné ingrediencie a skutočné výsledky.
 #### Výše ztráty k 26. 3. 2020: zatiaľ nevyčíslená
 
-Každá vaša objednávka nám urobí veľkú radosť. Čo síce platí aj v bežné dni, avšak v súčasnosti o to viac.
+Forma pomoci: Každá vaša objednávka nám urobí veľkú radosť. Čo síce platí aj v bežné dni, avšak v súčasnosti o to viac.
 
 Webové stránky: [anemonegarden.sk](https://www.anemonegarden.sk/)
 
