@@ -9,6 +9,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Prague tailor
+#### Módní návrhářka tvořící slow fashion na míru. Tři roky tvořím designové pánské košile a půl roku pod značkou Petra Györgyová fashion brand vznikají limitované kolekce dámských šatů, overalů, košil a kabátů. Najdete mě v Showroomu Londýnská 38.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Možnost nákupu limitovaných kolekcí letních pánských košil a dámské kolekce. Případně se domluvit na zakázce na míru, kterou v příštích pár týdnech zrealizujeme. Možnost nákupu voucheru v hodnotě 1000-3500 Kč. Rozvoz kolekce po Praze zdarma.
+
+Webové stránky: [prague-tailor.cz](http://prague-tailor.cz/)
+
+Instagram: [prague_tailor](https://www.instagram.com/prague_tailor/),[petra_gyorgyova_fashion](https://www.instagram.com/petra_gyorgyova_fashion/)
+
 ### MAYDA
 #### Česká módní značka
 #### Výše ztráty k 26. 3. 2020: zatím nevyčíslena
