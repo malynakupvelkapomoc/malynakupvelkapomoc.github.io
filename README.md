@@ -9,6 +9,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### anemone
+#### Online beauty obchod s jedinečnou prírodnou kozmetikou. Veríme v kvalitné ingrediencie a skutočné výsledky.
+#### Výše ztráty k 26. 3. 2020: zatiaľ nevyčíslená
+
+Každá vaša objednávka nám urobí veľkú radosť. Čo síce platí aj v bežné dni, avšak v súčasnosti o to viac.
+
+Webové stránky: [anemonegarden.sk](https://www.anemonegarden.sk/)
+
+Instagram/Facebook: [anemone_beautystore](https://www.instagram.com/anemone_beautystore/)[anemonegardensk](https://www.facebook.com/anemonegardensk) 
+
 ### Kartotéka
 #### Papírnictví inspirované designem z celého světa, nabízíme výběr produktů pocházející z malých tokijských studií až po tradiční, dlouho zavedené evropské značky.
 #### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
