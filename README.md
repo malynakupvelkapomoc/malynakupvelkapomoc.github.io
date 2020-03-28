@@ -8,6 +8,125 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Knihkupectví & knihařství
+#### Prodej knih, dárkového zboží a obrazů.
+#### Výše ztráty k 28. 3. 2020: 40000
+
+Forma pomoci: Nově nabízím knižní menu - každý den tři knížky vybrané k nějakému tématu. Sledujte na webu knihkupectví, na facebooku. Objednat je možné emailem, nebo přes FB, na pohodlnější verzi pracuju. Knihy ráda pošlu, nebo si je můžete po dohodě osobně vyzvednout.
+
+Webové stránky: [knihy-galerie.cz](http://www.knihy-galerie.cz)
+
+Facebook: [Knihkupectvi Kniharstvi](https://www.facebook.com/KnihkupectviKniharstvi/)
+
+### Studio Vjemy
+#### produktový design a návrh interiérů
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Jelikož prodáváme především v obchodech, moc by nám pomohl jakýkoliv nákup na našem eshopu, poštovné je nyní po ČR zdarma!
+
+Webové stránky: [vjemy.cz](https://vjemy.cz/cs/)
+
+Instagram/Facebook: [studio_vjemy](https://www.instagram.com/studio_vjemy/)/[studiovjemy](https://www.facebook.com/studiovjemy/)
+
+### MIK - Jana Mikešová
+#### Navrhování a tvorba módních oděvů. Zaměřujeme se především na výrobu pletených modelů a doplňků z kvalitních přírodních materiálů. Pod značkou MIK vznikají limitované oděvní kolekce, ale také zakázky přímo na míru.
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem přes náš e-shop, kde momentálně probíhají slevy na vybrané produkty. Dopravu máme zdarma. Budeme rádi za vaši podporu, ať už formou nákupu či třeba sdílením na sociálních sítích :) Děkujeme!
+
+Webové stránky: [janamikesova.com](https://www.janamikesova.com/)
+
+Instagram/Facebook: [mikesovajana](https://www.instagram.com/mikesovajana/)/[Jana Mikesova Fashion Designer](https://www.facebook.com/JanaMikesovaFashionDesigner/)
+
+### Kvartýr shop & studio
+#### Obchod sdílený lokálními návrháři. Své zastoupení zde má autorská móda, šperky, kožené a pletené doplňky, ortopedická obuv, interiérové doplňky či květiny. Součástí prostoru jsou i otevřené dílny a tvůrčí architektonické ateliéry. Zastoupené značky: BUCHY, L/U Leather Utilities, Lucie Komárková, MIK – Jana Mikešová, PAPUNDEKL ARCHITEKTI, plantárium a Sabina Rich.
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup přes jednotlivé eshopy designérů s dopravou zdarma. Objednání Kvartýr voucheru s libovolnou částkou přes stránky fb, instagramu či email. Děkujeme za podporu!
+
+Webové stránky: [kvartyrstudio.cz](https://www.kvartyrstudio.cz/)
+
+Instagram/Facebook: [kvartyrstudio.cz](https://www.instagram.com/kvartyrstudio.cz/)/[kvartyrstudio](https://www.facebook.com/kvartyrstudio)
+
+### Katka Kavkova fashion & style
+#### Odevná výroba prevažne dámskeho oblečenia. Oblečenie šité na Slovensku
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Každou jednou objednávkou mi pomôžete pokraçovať v mojej činnosti a v plnení snov. 
+
+Webové stránky: [katkakavkova.com](https://katkakavkova.com/)
+
+Instagram/Facebook: [budlabut](https://www.instagram.com/budlabut/)/[budlabut](https://m.facebook.com/budlabut)
+
+### NALEJTO ceramic design
+#### Trojice designérek – Markéta Kalivodová, Lucie Vostalová a Lenka Záhorková, které se zabývají převážně užitým porcelánem, ale i volnými objekty
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Podpořit nás můžete koupí našich produktů. Kompletní portfolio najdete na našem webu a o produkt si napsat emailem. Při připojení hesla "malynakupvelkapomoc" získáš SLEVU 10%. Podpořit nás také můžete třeba sdílením naší značky na sociálních sítích mezi vaše přátelé. 
+
+Webové stránky: [nalejto.com](http://www.nalejto.com/)
+
+Instagram: [nalejto_ceramic_design](https://www.instagram.com/nalejto_ceramic_design/)
+
+### Danny P.
+#### Navrhujeme a vyrábíme v Česku produkty z kůže jako jsou peněženky, tašky, opasky, obaly atd.
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme rádi za nákup na našem eshopu či pořízení dárkového poukazu. Moc děkujeme!
+
+Webové stránky: [dannypstyle.cz](http://www.dannypstyle.cz)
+
+Instagram/Facebook: [dannypstyle](https://www.instagram.com/dannypstyle/)/[dannypstyle](https://www.facebook.com/dannypstyleCZ/)
+
+### Maria Kobelova
+#### šperk & design
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup přes design@mariakobelova.com nebo sociální sítě, IG...
+
+Webové stránky: [mariakobelova.com](http://mariakobelova.com/)
+
+Instagram/Facebook: [mariakobelova](https://www.instagram.com/mariakobelova/)/[mariakobelova]( https://www.facebook.com/mariakobelovadesigner/?eid=ARCWR4Q5eGcqzxIVQgAKkfT9RWktSbYJXo1n3H_tN54wnO833rTRjA-BJtUU16PiF71jA8holPk9U1hm)
+
+### RIVICA
+#### RIVICA je slovenská módna značka, ktorá vysukňuje ženy. Sukňa je hlavný produkt. Dizajnérka Ivica a 2 krajčírky to je náš malý tím. Pôsobíme v Bratislave, kde máme SHOWROOM & ATELIÉR. Šijeme sukne na zákazku, ale máme v ponuke i tzv. skladovky, ktoré ponúkame na ESHOPe.  
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Veľmi by nás potešilo keby ste si vybrali z našej ponuky na ESHOPe, kde je kopec noviniek, ktoré sme pripravili na jarnoletnú sezónu - z prémiovej bavlny alebo ľanu. Taktiež je možné zakúpiť si DARČEKOVÚ POUKÁŽKU, pre seba alebo svoju blízku a realizovať nákup až do 1 roka od nákupu. Doteraz sme ušili pre nemocnicu v Bratislave 500ks rúšok, no a teraz navyše ku každej sukni posielame 1 rúško zdarma. Prípadne ak máte záujem o viac kusov, môžete si zakúpiť. Platí DOPRAVA ZDARMA v rámci Slovenska a Česka.
+
+Webové stránky: [rivica.sk](https://rivica.sk)
+
+Instagram/Facebook: [rivica.sk](https://www.instagram.com/rivica.sk/)/[rivica.sk](https://m.facebook.com/rivica.sk/)
+
+### LEEDA
+#### LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: nákup na www.leeda.cz momentálně se slevou 20%, poštovné mimo roušek zdarma...
+
+Webové stránky: [leeda.cz](https://leeda.cz)
+
+Instagram: [leedastore](https://www.instagram.com/leedastore/)
+
+### Vinařství a Víno Hruška Pavel
+#### výroba a prodej vína
+#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem vína na našich stránkách, online přes fb, sdílením příspěvku. Ale také účastí na našich nových online kurzech degustace, které věříme, že si užijete s naším vínem i z pohodlí domova. Najdete je na FB, součástí je degustační balíček vín.. Nabízíme i dárkové balení vín. Poštovné při objednávce jednoho kartonu vín a více je zdarma.
+
+Webové stránky: [vinarstvi-blatnice.cz](https://www.vinarstvi-blatnice.cz/)
+
+Instagram/Facebook: [vinohruskapavel](https://www.instagram.com/vinohruskapavel/)/[vinohruskapavel](https://www.facebook.com/vinohruskapavel/)
+
+### VINNÁ
+#### výroba šperků z révy vinné
+#### Výše ztráty k 27. 3. 2020: 20000
+
+Forma pomoci: Pomoci může koupě on-line, přes FB, Instagram.. Věřím, že i v těžší době si dál děláte radost a kouzlíte úsměvy jeden druhému. Pořád máme narozeniny, první máje, dny dětí i otců.. Proto chci nabídnout možnost nákupu bez platby poštovného. Při nákupu více kusů počítejte se slevou 20 % na všechno. Od dubna se můžete těšit i na pánskou kolekci. Děkuji a těším se! 
+
+
+Instagram/Facebook: [su_vinna](https://www.instagram.com/su_vinna/?hl=cs/)[Vinná](https://www.facebook.com/jsemvinna/)
+
 ### COURAGE
 #### koncept store zaměřený na české návrháře a designery
 #### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
