@@ -8,6 +8,64 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Live Sweaters
+#### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Aktuálnější v tomto období budou asi basic trika z merino vlny a funkční merino ponožky s protiklíšťatovou úpravou (Jestli máte možnost možnost vyrazit třeba na zahradu ).  Díky benefitům merino vlny naše produkty vydrží dlouho jako nové a nemusíte je tak často prát – Jsou „care-free“. Vše vyrábíme v Čechách.
+#### Výše ztráty k 30. 3. 2020: 30000+
+
+Forma pomoci: Budu moc rád, když nás podpoříte a koupíte si nějaký náš produkt nebo voucher v hodnotě 500 – 5000 Kč s roční platností. Navíc máme pro všechny DOPRAVU ZDARMA a ještě slevu 10% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
+
+Webové stránky: [livesweaters.eu](https://www.livesweaters.eu/cs)
+
+Facebook/Instagram: [LiveSweaters]( https://www.facebook.com/LiveSweaters/)/[livesweaters](https://www.instagram.com/livesweaters/ )
+
+### goodbyGlass
+#### Projekt goodbyGlass se zabývá online prezentací mladých sklářských výtvarníků, kteří se zaměřují na české ateliérové sklo, design a šperky. Jeho součástí je nejen online platforma, ale i výstavní a kulturní činnost. K propagaci tak dochází nejen pomocí fotografií na webu, ale samotným zážitkem při kontaktu s dílem na výstavních, designérských či společenských akcích.
+#### Výše ztráty k 30. 3. 2020: 30000+
+
+Forma pomoci: Nákupem v našem e-shopu podpoříte české sklářské výtvarníky, kteří to v současné době nemají vůbec snadné. Zútulníte  si svůj domov, či jiný soukromý nebo veřejný prostor. Zároveň vložíte finance do uměleckého díla, které v následujících letech může nabídnout zajímavé zhodnocení.
+Při této příležitosti nabízíme 20% slevu na vybrané kousky. Zvýhodněné dárkové poukazy pořídíte s 10% slevou.  Poštovné od nás máte jako vždy zdarma. Můžete nám také jen přispět nákupem skleněného Srdce vděčnosti či nás sdílet na sociálních sítích.
+Za podporu Vám velice děkujeme!"
+
+Webové stránky: [goodby.glass](https://goodby.glass/)
+
+Facebook/Instagram: [goodbyglass]( https://www.facebook.com/goodbyglass/)/[goodbyglass](https://www.instagram.com/goodby_glass/ )
+
+### Keramika Andreas
+#### Vyrábíme keramické dekorace a dárky pro útulný domov.
+#### Výše ztráty k 30. 3. 2020: 170000
+
+Forma pomoci: Nákup našich výrobků pomůže nejvíce. Můžeme za vás také poslat dárek rovnou na adresu obdarovaného.
+
+Webové stránky: [keramika-andreas.cz](https://www.keramika-andreas.cz/)
+
+Instagram/Facebook: [andreaskeramika](https://www.instagram.com/andreaskeramika/)/[andreaskeramika](https://www.facebook.com/andreasvotice)
+
+### sweet666design - Dana Hapalová
+#### původní česká módní značka založena designérkou Danou Hapalovou roku 2003
+#### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: nákupem dárkových poukázek nebo oblečení přes stránky fb, instagramu či přes web
+od 1. dubna také nákupem roušky
+
+podpořili jsme v začátku výrobu roušek věnováním cca 150m látek tam, kde to bylo nejvíce potřeba, celkově se společně z našich materiálů vyrobilo ke 4.000 ks roušek a nyní se snažíme zajistit chod studia a existenci značky
+
+děkujeme za jakoukoliv formu podpory nás i ostatních malých podnikatelů,
+opatrujte se, jsme v tom spolu
+
+Webové stránky: [sweet666design.cz](http://sweet666design.cz/)
+
+Instagram/Facebook: [sweet666design](https://www.instagram.com/sweet666design/)/[sweet666design](https://www.facebook.com/czsweet666design/)
+
+### .about leather.
+#### MINIMALISMUS.NADČASOVOST.MINI SÉRIE. Výrobky .about leather. jsou vyrobeny v České republice, v Praze. Jedná se o ruční práci, každý výrobek je vyroben s úctou a láskou k řemeslu a je tím pádem originál. Pracuji s velmi kvalitní kůží z Itálie, konkrétně z Toskánska. 
+#### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: K nákupu dostanete dárek - kožený obal na brýle + DPD dopravu zdarma (ČR, SR).
+
+Webové stránky: [aboutleather.cz](https://www.aboutleather.cz)
+
+Instagram: [about.leather](https://www.instagram.com/about.leather/)
+
 ### keramik.ART.studio
 #### prodej autorských originálů na e-shopu
 #### Výše ztráty k 30. 3. 2020: odhadem zatím 15.000Kč
