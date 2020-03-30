@@ -8,6 +8,36 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### TAM ARA
+#### TAM ARA je pražská značka, ktorá vyrába dámsku minimalistickú módu do práce a na voľný čas strávený v meste. Šijeme v Prahe a len z prírodných materiálov, najradšej pracujeme s vlnou. Tvoríme limitované kolecie, ale aj zakázky na mieru.
+#### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Môžete si nakúpiť rúška cez instagram alebo facebook a tak podporíte nákup ďalších materiálov na rúška pre potrebných, ako aj nutné výdaje na chod značky. Samozrejme, najviac nás poteší, ak si zakúpite niečo z našej tvorby na našom eshope, dopravu po ČR a SR poskytujeme od začiatku zdarma a teraz máme ako bonus 20% zľavu s kódom "quarantinechic", ktorý zadáte pred platením. Ďakujeme za akúkoľvek podporu a prajeme veľa zdravia, síl a optimizmu :)
+
+Webové stránky: [tam-ara.cz](http://www.tam-ara.cz/)
+
+Instagram: [tam_ara_cz](https://www.instagram.com/tam_ara_cz/)
+
+### Karla Olšáková
+#### Karla je česká šperkařka, která svou značku založila v roce 2011. Věnuje se autorskému šperku, sériové výrobě i práci na zakázku. Značka je charakteriskická minimalistickým designem s důrazem na detail, precizní zpracování a variabilitu. 
+#### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Pomůžete nám nákupem šperku nebo voucheru. Na e-shopu pracujeme, do té doby než bude spuštěn můžete vybírat a objednávat přes web nebo Instagram. Aktuálně nabízíme SLEVU 5% a dopravu po ČR ZDARMA. Budeme rádi za Vaši podporu, ať už formou nákupu nebo sdílením na siciálních sítích. Šperky vznikají v naší mikulovské dílně, kde je možný i osobní odběr. Moc děkujeme!
+
+Webové stránky: [karlaolsakova.cz](https://karlaolsakova.cz)
+
+Instagram: [karla_olsakova](https://www.instagram.com/karla_olsakova/)
+
+### NLMTdesign
+#### NLMT design sou ručně vyráběny šperky spojující nadčasovu estetiku a minimalisticky design. Navrhnuto a vyrobeno v Prahe.
+#### Výše ztráty k 29. 3. 2020: cca 40 000
+
+Forma pomoci: 15% zlava na novu kolekciu ULTIMATE. Nákup přes nlmtdesign@gmail.com pripadne DM instagram/facebook. Poštovné je do SK/ČR zdarma. Nebo si je můžete po dohodě osobně vyzvednout (Praha 3). Děkujem za podporu! Nová Kolekce ULTIMATE je inspirována láskou k přírodě a přirozenou anatomií ucha. Tato kolekce kombinuje základní geometrické linie se sladkovodními perlami. Celá kolekce je vyrobena ze 100% recyklovaného stříbra. Šperky sou balené do recyklovaných obalů vyrobených speciálně pro kolekcí ULTIMATE.
+
+Webové stránky: [nlmtdesign.com](https://www.nlmtdesign.com/)
+
+Instagram/Facebook: [nlmtdesign](https://www.instagram.com/nlmtdesign/)/[nlmtdesign](https://www.facebook.com/NLMTdesign/ )
+
 ### No!Madame
 #### Oblečení pro všechny milovníky motorek, piva, rock'n'rollu a potetovaných holek.
 #### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
