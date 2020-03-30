@@ -8,6 +8,26 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### No!Madame
+#### Oblečení pro všechny milovníky motorek, piva, rock'n'rollu a potetovaných holek.
+#### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem přes náš e-shop, kde nabízíme při objednávce nad 1000,- dopravu zdarma.
+
+Webové stránky: [nomadame.cz](http://www.nomadame.cz/)
+
+Instagram/Facebook: [nomadamebrand](https://www.instagram.com/nomadamebrand/)/[nomadamebrand](https://www.facebook.com/nomadamebrand/)
+
+### Královské svatby
+#### Zabývám se výzdobou a koordinací svateb, drobnými dekoracemi do domácností či podniků. Loni jsme nově spustili e-shop s produkty zaměřenými převážně na svatby, ale i pro radost. 
+#### Výše ztráty k 29. 3. 2020: 30 000
+
+Forma pomoci: Váš nákup na našem e-shopu by nám moc pomohl, vzhledem k tomu, že jsou aktuálně zakázány všechny společenské události, tak je to pro nás jediný možný zdroj příjmu. Zakoupit se dá i voucher, který můžete využít nejen na naše zboží, ale i služby, včetně workshopů, které v průběhu roku pořádáme. Pomocí pro nás ale bude i sdílení naší stránky, případně zveřejňování zakoupených produktů s označením naší firmy. Moc děkujeme všem, kteří se rozhodnou nám jakkoli pomoct a přejeme všem, zdraví a ať je to co nejdříve za námi.
+
+Webové stránky: [kralovskesvatby.cz](https://www.kralovskesvatby.cz/)
+
+Instagram/Facebook: [kralovskesvatby](https://www.instagram.com/kralovskesvatby/)/[kralovskesvatby](https://www.facebook.com/kralovskesvatby/)
+
 ### Ollies
 #### Ollies je síť cukráren, která na českém trhu působí už 20 let. Mimo Ostravu, Olomouc otevřela loni svou první pobočku v Praze na Vinohradech. Vize Ollies je originalita, lepší chuť a především kvalita jejich výrobků. Základy jejich receptur pochází z francouzské cukrařiny a do Francie se právě jezdí pravidelně vzdělávat a inspirovat. Vizí Ollies je stát se nejlepší cukrárnou v Česku. 
 #### Výše ztráty k 29. 3. 2020: 3 000 000
