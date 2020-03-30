@@ -8,6 +8,36 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Ollies
+#### Ollies je síť cukráren, která na českém trhu působí už 20 let. Mimo Ostravu, Olomouc otevřela loni svou první pobočku v Praze na Vinohradech. Vize Ollies je originalita, lepší chuť a především kvalita jejich výrobků. Základy jejich receptur pochází z francouzské cukrařiny a do Francie se právě jezdí pravidelně vzdělávat a inspirovat. Vizí Ollies je stát se nejlepší cukrárnou v Česku. 
+#### Výše ztráty k 29. 3. 2020: 3 000 000
+
+Forma pomoci: Bojujeme o stošest, naše produkty si stále můžete zakoupit v Praze, Olomouci a Ostravě z našich poboček přes výdejové okénko, v Praze také fungujeme na WOLT, UBEReats, nesnězeno a rohlik.cz, kde vám všechny naše produkty dovezeme až domů. V Ostravě máme dokonce vlastní rozvoz zdarma. Od zítra budeme nově prodávat naše máslové croissanty jako mražený polotovar na domů nebo on-line kurz makronek, který pro Vás připravíme nejpozději od 1.4.
+
+Webové stránky: [ollies.cz](https://www.ollies.cz)
+
+Instagram/Facebook: [ollies_cukrarna]( https://www.instagram.com/ollies_cukrarna/)/[olliescukrarna](https://www.facebook.com/olliescukrarna)
+
+### MOOQ
+#### Výroba a prodej designového sportovního oblečení
+#### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: MOOQ je česká nezávislá značka designového sportovního oblečení, kterou založili dva kamarádi a sportovci, Ondra a Pavel. V současné chvíli máme slevu 30 % na loňskou kolekci cyklistického oblečení a poštovné zdarma. Nákupem kousku z této kolekce (ať už se vám hodí nový dres, nebo jenom návleky) podpoříte výrobu nové re_cycle a re_turn kolekce, která bude z recyklovaných materiálů, a spolu s tím i další české podniky - naše plavky šijí šikovné švadleny na Vysočině, nové cyklo dresy zase skvělá výroba na Moravě. Všechny potisky, poukazy i další nezbytné tiskoviny tiskneme také výhradně v Čechách. Nevybrali jste si z kolekce? Jestli se vám naše práce líbí, budeme moc rádi za podporu i lajkem na Instagramu, díky kterému se naše práce dostane zase dál. Pavel a Ondra z MOOQ.
+
+Webové stránky: [mooq.cz](https://mooq.cz/)
+
+Instagram/Facebook: [mooqsport](www.instagram.com/mooqsport/)/[mooqsport](www.facebook.com/mooqsport)
+
+### Mialis
+#### Zlatnictví a klenotnictví
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Každá objednávka nám pomůže. Aktuálně nabízíme na e-shopu 15% slevu pokud do objednávky zadáte kód “VELKAPOMOC”. S přáteli potom můžete sdílet odkaz na naše sociální sítě i radost z nákupu, které si pořídíte! Doprava, gravírovaní a řetízek budou pro Vás zdarma. Rád pro Vás vyrobím výjimečný šperk dle vašeho přání! Sledujte nás dál na faceboku, máme pro vás připravené jarní novinky. Děkujeme a pojďme pomoci jeden druhému.
+
+Webové stránky: [mialis.cz](https://mialis.cz/)
+
+Facebook: [mialisjewelry](https://www.facebook.com/mialisjewelry/)
+
 ### Knihkupectví & knihařství
 #### Prodej knih, dárkového zboží a obrazů.
 #### Výše ztráty k 28. 3. 2020: 40000
