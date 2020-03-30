@@ -553,3 +553,12 @@ a:active, a:focus {
         border-bottom: 0;
         text-decoration: none;
     }
+
+    /* Footer logo */
+
+    .logo-img {
+    display: block;
+    text-align: center;
+    margin: 2.5rem auto 0;
+    }
+    
