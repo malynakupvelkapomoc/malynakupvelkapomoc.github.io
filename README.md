@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### keramik.ART.studio
+#### prodej autorských originálů na e-shopu
+#### Výše ztráty k 30. 3. 2020: odhadem zatím 15.000Kč
+
+Forma pomoci: nákup na e-shopu
+
+Webové stránky: [keramikartstudio.cz](https://keramikartstudio.cz)
+
+Instagram/Facebook: [keramikartstudio](https://www.instagram.com/keramikartstudio)/[keramikartstudio](https://www.facebook.com/keramikartstudio/)
+
 ### TAM ARA
 #### TAM ARA je pražská značka, ktorá vyrába dámsku minimalistickú módu do práce a na voľný čas strávený v meste. Šijeme v Prahe a len z prírodných materiálov, najradšej pracujeme s vlnou. Tvoríme limitované kolecie, ale aj zakázky na mieru.
 #### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
