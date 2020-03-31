@@ -8,6 +8,36 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### SUPERMARKET WC
+#### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup produktů přes náš eshop. Každá objednávka nám pomůže. Pečujte o své sny, obnovujte klid a pěstujte kreativitu. Dobíjejte baterky a dělejte radost sobě a druhým. 
+
+Webové stránky: [supermarketwc.cz]( http://eshop.supermarketwc.cz/)
+
+Instagram: [supermarket.wc ](https://www.instagram.com/supermarket.wc /)
+
+### Lavandia s.r.o.
+#### Levandulová farma z jižní Moravy.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Vy podpoříte nás nákupem nad 500,- Kč a my podpoříme vás. V balíčku dostanete 2 ks námi šitých roušek ZADARMO. Pokud pošlete objednávku nad 700,- Kč věnujeme za vás navíc karton levandulové limonády záchranným složkám v Hustopečích u Brna ( i se vzkazem od vás) . Dopravu přes Českou poštu do balíkovny máte od nás zadarmo.Navíc podpoříte i lidi s různým typem tělesného postižení, protože vše vyrábíme v chráněné dílně. Moc Vám děkujeme!!! 
+
+Webové stránky: [levandulezmoravy.cz]( https://www.levandulezmoravy.cz/)
+
+Instagram: [levandulezmoravy](https://www.instagram.com/levandulezmoravy/)
+
+### Dráček.cz
+#### malý rodinný eshop a kamenný obchod s dětským zbožím se zaměřením na české výrobky a školní sortiment
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: nákup na našem eshopu 
+
+Webové stránky: [dracek.cz](https://www.dracek.cz/)
+
+Facebook: [Dracek.cz](https://www.facebook.com/Dracek.cz/)
+
 ### Smaltum
 #### Jsme mála rodinná firma SMALTUM, která před dvěma lety oslavila dvacáté narozeniny. V pecích ale vypalujeme ještě déle! :) Vyrábíme barevné smaltované hrnečky, talířky a jiné nádobí pro děti i dospělé, či třeba misky pro pejsky a kočičky.
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
