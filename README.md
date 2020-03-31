@@ -1,4 +1,4 @@
-**UPDATE 30. 3. 2020**  
+**UPDATE 31. 3. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,19 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### Linky Fashion
+#### V této době dobrovolně šiji roušky a zadarmo je daruji do  zdravotnických zařízení a domovů důchodců. Po dobu 2 týdnů, co jsem se připojila ke skupince vietnamských švadlenek jsme v rámci mé skupinky darovaly přes 2000 ks roušek, ale bohužel jsem neměla žádný příjem, protože jsem se rozhodla pomáhat potřebným a nyní potřebuji pomoc i já. Prodávám dámské stylové oblečení, pro které jsem sama osobně jela vybírat do zahraničí, abych se ujistila o kvalitě produktu. Oblečení je stylové, vhodné pro běžné i formální nošení. Cílem je, aby se každá žena cítila sebevědomě a pohodlně v tom, co nosí.  Moc mi pomůžete, když podpoříte můj malý e-shop, abych si nemusela hledat práci, protože to byl vždy můj sen mít malý obchůdek s oblečením. 
+#### Výše ztráty k 30. 3. 2020: 30000
+
+Forma pomoci: "Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
+Pokud se budete chtít se mnou poradit před samotným nákupem, tak mě určitě můžete kontaktovat i na soc.sítích IG/FB. Ráda vám poradím. Držte se a přeji všem pevné zdraví. #spolecnetozvladneme
+
+Linky
+
+Webové stránky: [linkyfashion.eu](https://www.linkyfashion.eu)
+
+Facebook/Instagram: [Linky Fashion]( https://www.facebook.com/LinkyFashion/)/[linkyfashion](https://www.instagram.com/linkyfashion/)
 
 ### Live Sweaters
 #### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Aktuálnější v tomto období budou asi basic trika z merino vlny a funkční merino ponožky s protiklíšťatovou úpravou (Jestli máte možnost možnost vyrazit třeba na zahradu ).  Díky benefitům merino vlny naše produkty vydrží dlouho jako nové a nemusíte je tak často prát – Jsou „care-free“. Vše vyrábíme v Čechách.
