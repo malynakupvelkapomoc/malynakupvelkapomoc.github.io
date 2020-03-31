@@ -8,11 +8,114 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### BYSSINE
+#### Online prodejna s čistou kosmetikou a  pečujícími rituály
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: "Nákupem tištěných i digiálních dárkových poukazů s platností 18 měsíců. 
+Ke každému nákupu nad 3 000 Kč od nás obdržíte headband pro zpříjemnění Vašich pečujících rituálů. Doprava je zdarma."
+
+Webové stránky: [byssine.com](https://www.byssine.com/)
+
+Instagram: [@byssine.club](https://www.instagram.com/@byssine.club/)
+
+### yo_soy
+#### Minimalistické šperky z moderních materiálů
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Ráda se zákaznicemi setkávám na různých design marketech a je to pro mne důležitý zdroj příjmů - tyto hromadné akce se ale dlouho nebudou konat. Stejně tak jsou nyní uzavřené lokální obchody, kam šperky dodávám.  Proto budu ráda, když si vyberete šperk přes internet z mého e-shopu, kde nyní nabízím poštovné zdarma. Můžete potěšit sebe nebo někoho blízkého a zároveň mne podpořit v nelehké situaci. Děkuji!
+
+Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
+
+Facebook/Instagram: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
+
+### yo_soy
+#### Minimalistické šperky z moderních materiálů
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Ráda se zákaznicemi setkávám na různých design marketech a je to pro mne důležitý zdroj příjmů - tyto hromadné akce se ale dlouho nebudou konat. Stejně tak jsou nyní uzavřené lokální obchody, kam šperky dodávám.  Proto budu ráda, když si vyberete šperk přes internet z mého e-shopu, kde nyní nabízím poštovné zdarma. Můžete potěšit sebe nebo někoho blízkého a zároveň mne podpořit v nelehké situaci. Děkuji!
+
+Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
+
+Facebook/: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
+
+### JANNAMI
+#### Obchod s českou a slovenskou 100% přírodní kosmetikou. V našem obchodě najdete více než 15 českých a slovenských značek většinou ručně vyráběné kosmetiky, kterou firmy vyrábí výhradně z přírodních surovin té nejvyšší kvality.   
+#### Výše ztráty k 31. 3. 2020: 80000
+
+Forma pomoci: Nákup produkt přes e-shop, nákup voucheru na zboží. Při zadání hastagu #malynakupvelkapomoc do poznámky u objednávky přidáme zákazníkovi k objendávce nad 800,- přírodní ručně vyráběné mýdlo od Almara Soap:-)
+
+Webové stránky: [jannami.cz](http://www.jannami.cz)
+
+Facebook: [jannamicz](https://www.facebook.com/jannamicz/)
+
+### Best4Run
+#### Jsme malá běžecká speciálka v Přerově, kterou před pěti lety otevřeli manželé se třemi dětmi. . Každým dnem, kterým máme zavřeno, se blížíme k zavření celé prodejny. Peníze ve skladových zásobách nám leží a fakturám se blíží splatnost. Máme i e-shop, ale nejvíc jsme si vždycky zakládali na tom, že tu jsme pro běžce, že s nimi vybíráme klidně i hodinu, že je necháme všechno v klidu vyzkoušet a pokud pro ně nemáme ty pravé boty, raději jim neprodáme žádné než takové, které by jim neseděly. 
+#### Výše ztráty k 31. 3. 2020: 450000
+
+Forma pomoci: Nákupem na e-shopu. Dopravu nad 500 Kč jsme dali zdarma, k botám od Inov-8 dáváme dárek. Každý nákup nám pomůže dostat se přes tohle období a vrátit se k tomu, co máme nejraději. Být tu pro vás a starat se o to, abyste běhali správně. Jsme k dispozici na chatu, FB i mailu a moc rádi pomůžeme s výběrem. 
+
+Webové stránky: [best4run.cz](https://www.best4run.cz/)
+
+Facebook: [Best4Run](https://www.facebook.com/Best4Run/)
+
+### tyformy
+#### Studio Tyformy zaměřující se na tvorbu užitných předmětů z porcelánu vede Pavla Vachunová. 
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Podpořit nás můžete zakoupenám produktů na našem e-shopu, dárkových poukazů nebo kurzů na podzim zima. Poštovné po ČR je zdarma. Z důvodu karantény a uzavření provozů pro výrobu porcelánu máme částečně omezený provoz. Radost a kreativita nás neopouští, tak díky tomu vzniká nová kolekce Primitivo o tom všem a více budeme informovat na webu a sociálních sítích.   Moc děkujeme!!!
+
+Webové stránky: [tyformy.cz](http://tyformy.cz)
+
+Instagram: [tyformy](https://www.instagram.com/tyformy/ )
+
+### Peelo
+#### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže hravo nahradiť plastovú fóliu v každej domácnosti. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce aspoň malým krokom prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k našej prírode.
+#### Výše ztráty k 30. 3. 2020: 2000
+
+Forma pomoci: Až to odvolania si v našom e-shope môžete kúpiť akýkoľvek produkt s poštovným ZADARMO do celej SR a ČR a s kódom PRVEPEELO môžete navyše získať zľavu 10% na prvý nákup. Ak chcete v týchto dňoch obdarovať niekoho, kto má sviatok alebo len tak potešiť niekoho praktickým a ekologickým darčekom, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
+
+Webové stránky: [peelo.store](https://peelo.store/)
+
+Instagram/Facebook: [peelo.wraps](https://www.instagram.com/peelo.wraps/ )/[peelo.wraps](https://www.facebook.com/peelo.wraps/)
+
+### Utukutu
+#### Jsme rodinná truhlárna, kde vyrábíme pohybové hračky pro dospělé a děti, které sami vymýšlíme, designujeme a uvádíme na trh. Přinášíme do domovů pohyb, barvy a ladnost dřeva.
+#### Výše ztráty k 30. 3. 2020: 100000
+
+Forma pomoci: Nákup našich pohybových hraček. A nebo o nás řekněte sousedům a kamarádům.
+
+Webové stránky: [utukutu.cz](https://www.utukutu.cz)
+
+Instagram: [Utukutueu](https://www.instagram.com/Utukutueu/)
+
+### Object Concept Store
+#### Prodej přírodní kosmetiky, designových doplňků, módy a umění
+#### Výše ztráty k 30. 3. 2020: zatím nevyčísleno
+
+Forma pomoci: Budeme rádi za nákup na eshopu s bezpečným osobním doručením po Brně zdarma, do ostatních koutů ČR doručujeme přes DPD. Máme připraveny na eshopu i vouchery v hodnotě 500, 1000, 2000kč. Ke každé objednávce přidáváme dárek jako poděkování za podporu <3
+
+Webové stránky: [objectstore.cz](https://www.objectstore.cz)
+
+Instagram: [objectconceptstore](https://www.instagram.com/objectconceptstore/)
+
+### Rap
+#### Obchod s módou a doplňky
+#### Výše ztráty k 30. 3. 2020: 50000
+
+Forma pomoci: Máš rád Rap? My taky, situace je ted všelijaká, nikdo moc nevi, co bude, ale nechceme dělat negativní závěry. Můžeš koupit produkty z naší nabídky nebo někomu darovat poukázku v hodnotě 500 - 2000Kč. Zároveň máme slevu 300Kč při nákupu nad 1000Kč - MALYNAKUPVELKAPOMOC
+
+Děkujeme za podporu a buďte zdrávi #raponetwo
+
+Webové stránky: [raprap.cz](https://www.raprap.cz/)
+
+Instagram: [raponetwo](https://www.instagram.com/raponetwo/)
+
 ### Linky Fashion
 #### V této době dobrovolně šiji roušky a zadarmo je daruji do  zdravotnických zařízení a domovů důchodců. Po dobu 2 týdnů, co jsem se připojila ke skupince vietnamských švadlenek jsme v rámci mé skupinky darovaly přes 2000 ks roušek, ale bohužel jsem neměla žádný příjem, protože jsem se rozhodla pomáhat potřebným a nyní potřebuji pomoc i já. Prodávám dámské stylové oblečení, pro které jsem sama osobně jela vybírat do zahraničí, abych se ujistila o kvalitě produktu. Oblečení je stylové, vhodné pro běžné i formální nošení. Cílem je, aby se každá žena cítila sebevědomě a pohodlně v tom, co nosí.  Moc mi pomůžete, když podpoříte můj malý e-shop, abych si nemusela hledat práci, protože to byl vždy můj sen mít malý obchůdek s oblečením. 
 #### Výše ztráty k 30. 3. 2020: 30000
 
-Forma pomoci: "Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
+Forma pomoci: Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
 Pokud se budete chtít se mnou poradit před samotným nákupem, tak mě určitě můžete kontaktovat i na soc.sítích IG/FB. Ráda vám poradím. Držte se a přeji všem pevné zdraví. #spolecnetozvladneme
 
 Linky
