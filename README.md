@@ -8,6 +8,67 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Smaltum
+#### Jsme mála rodinná firma SMALTUM, která před dvěma lety oslavila dvacáté narozeniny. V pecích ale vypalujeme ještě déle! :) Vyrábíme barevné smaltované hrnečky, talířky a jiné nádobí pro děti i dospělé, či třeba misky pro pejsky a kočičky.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Rádi bychom přinášeli radost i dál a udrželi v Česku tradici starou několik desetiletí. Bez vaší pomoci to však nepůjde. Nákup našich výrobků pomůže nejvíce. (Můžeme za vás také poslat dárek rovnou na adresu obdarovaného). Máme pro Vás slevu 20% s kódem "velkapomoc".
+
+Webové stránky: [smaltum.cz](https://www.smaltum.cz/)
+
+Instagram/Facebook: [smaltum_officia](https://www.instagram.com/smaltum_officia)/[smaltumofficial](https://www.facebook.com/smaltumofficial)
+
+### Bistroteka Atelier
+#### bistroteka Atelier je skvělou kombinací bistra a vinotéky - k dobrému vínu totiž neodmyslitelně patří i něco dobrého k jídlu
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Rozvoz vína zdarma v Říčanech a okolí, rozvoz po Praze zdarma minimálně jednou v týdnu nebo dle dohody.
+Víno můžete objednávat každý den v čase 14:00 - 19:00 přes zprávy na Instagramu nebo Facebooku, kde najdete nabídku vín k rozvozu, dále telefonicky na čísle 601666676, případně přes whatsapp. 
+
+Webové stránky: [bistrotekaatelier.cz](https://www.bistrotekaatelier.cz/)
+
+Instagram/Facebook: [bistroteka.atelier](https://www.instagram.com/bistroteka.atelier)/[bistroteka.atelier](https://m.facebook.com/Bistroteka-Atelier-103211637820469/)
+
+### Šárka Strnadová
+#### Značku pod svým jménem jsem založila před asi 3 lety. Tvořím pod ní dámské ready-to-wear kolekce. Minimalistické kousky na běžné nošení i na večer a vždy z kvalitních materiálů. Šiji převážně z bavlny, vlny a hedvábí. Záleží mi na pohodlí mých klientek, ale zároveň chci aby se v mých kouscích cítily žensky, elegantně i sexy. Kolekce tvořím dvakrát ročně, ale mimo ně tvořím i na zakázku. Zakázky dělám ráda i pro muže. Ženy si objednají převážně svatební a plesové šaty, ale často i něco na běžné nošení. Kromě navrhování se věnuji i stylingu. Lze u mě objednat Refreš šatníku nebo Nákupy se stylistkou. Veškeré informace k tomu najdete na mém webu.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: K jakékoliv objednávce nyní posílám roušky jako dárek. Pokud si objednáte zboží nebo poukaz přímo u mě, dostanete poštovné zdarma. 
+
+Webové stránky: [sarkastrnadova.cz](https://www.sarkastrnadova.cz/menu)
+
+Instagram: [strnadsarka](https://instagram.com/strnadsarka?igshid=c5smahulaw7h)
+
+### JAA∞TY
+#### Autorské módní a bytové doplňky, převážně ze dřeva (a dalších přírodních materiálů). Zodpovědně, lokálně, udržitelně.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme moc vděční za nákup na našem e-shopu. Při nákupu nad 1000 Kč je doprava zdarma. Nově vám mohou udělat radost jarní dřevěné dekorace nebo autorské plakáty. Věnujeme se také zakázkové výrobě pro firmy, převážně v dárkovém sortimentu.
+
+Hledáte vkusný a udržitelný dárek jako poděkování pro obchodní partnery, zákazníky, zaměstnance? Rádi je vám navrhneme i vyrobíme. Napište nám, děkujeme. 
+
+Webové stránky: [jaa-ty.cz](https://www.jaa-ty.cz)
+
+Instagram: [jaa_ty.cz](https://www.instagram.com/jaa_ty.cz/)
+
+### LIKA KLUB, rodinné nakladatelství
+#### Vydáváme od roku 1992 nepřetržitě knihy  v malých nákladech. Dětské, pro volný čas, podporujeme české autory. Unikátní je oceňovaná řada výpravných publikací o tradiční lidové kultuře, řemeslech a umění. Originální grafické a pečlivé polygrafické zpracování.
+#### Výše ztráty k 31. 3. 2020: 80000
+
+Forma pomoci: Nákupem přes náš web www.likaklub.cz či mail likaklub@volny.cz dostanete od nás 20% slevu+poštovné a balné zdarma. Děkujeme, projevíte-li zájem o náš web, potažmo o naši práci, tedy knihy. Věříme, že to napomůže naší záchraně.
+
+Webové stránky: [likaklub.cz](http://www.likaklub.cz)
+
+### BACKYARD design concept store
+#### současný český design - móda, šperky, doplňky, užité umění
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: nákup na e-shopech našich designérů (viz webové stránky) nebo nákup voucheru Backyard ve vámi zvolené výši s neomezenou platností prostřednictvím emailu by@back-yard.cz nebo FCB
+
+Webové stránky: [back-yard.cz](https://www.back-yard.cz)
+
+Facebook: [bckrd](https://www.facebook.com/bckrd/)
+
 ### BYSSINE
 #### Online prodejna s čistou kosmetikou a  pečujícími rituály
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
