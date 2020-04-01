@@ -8,9 +8,20 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Renáta Jančo Design
+#### Vytvářím jednoduchý, funkční, módní design s absencí zbytečných ozdob, ukazuji krásu a sílu jednoduchosti i elegance neformálního stylu. Přináším tak dávku čerstvého vzduchu do svých návrhů a čisté linie s jemnými detaily, které jsou obvykle spojeny do monochromatických outfitů. Chci, aby lidé prostřednictvím mé tvorby získali zdravé sebevědomí a tím vyšší dávku denního štěstí. Svou tvorbu vyrábím výhradně v České republice, na mé rodné Moravě a to pouze z kvalitních materiálů.
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Vlastnoručně našito přes 500 kusů látkových roušek a zdarma předáno potřebným (seniorům, zdravotníkům, rodinám) ve městě Olomouc. Každý nákup mi pomůže získat finanční prostředky k zajištění dalších materiálů, galanterie a provozních nákladů na rozvoz pro další vlnu šití. Nabízím 10% sleva online prodej + poštovné přes Zásilkovnu zdarma.
+Ke každé zakoupené designové roušce, věnuji další látkovou zdarma (1+1). Heslo pro aktivaci výhod: malynakupvelkapomoc_2020.
+
+Webové stránky: [jancodesign.cz](http://www.jancodesign.cz/)
+
+Instagram/Facebook: [renatajanco](https://www.instagram.com/renatajanco)
+
 ### Clap Design
 #### Navrhujeme a vyrábíme kvalitní doplňky do kuchyně a ke stolování. Dřevěné produkty.
-#### Výše ztráty k 31. 3. 2020: 250 000
+#### Výše ztráty k 1. 4. 2020: 250 000
 
 Forma pomoci: Pomůžete nám nákupem. Nabízíme vám SLEVY 30-40% 👉 na vybrané produkty. Např. Neodolatelný magnetický držák na nože Wall Rack!😲 Využijte tuto výjimečnou příležitost pro sebe, ale zároveň tím podpořte lokální značku🙏#malynakupvelkapomoc
 
