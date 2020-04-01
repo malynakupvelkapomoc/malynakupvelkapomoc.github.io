@@ -8,6 +8,87 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Clap Design
+#### Navrhujeme a vyrábíme kvalitní doplňky do kuchyně a ke stolování. Dřevěné produkty.
+#### Výše ztráty k 31. 3. 2020: 250 000
+
+Forma pomoci: Pomůžete nám nákupem. Nabízíme vám SLEVY 30-40% 👉 na vybrané produkty. Např. Neodolatelný magnetický držák na nože Wall Rack!😲 Využijte tuto výjimečnou příležitost pro sebe, ale zároveň tím podpořte lokální značku🙏#malynakupvelkapomoc
+
+Webové stránky: [clapdesign.cz](https://www.clapdesign.cz)
+
+Facebook: [clapdesign.cz](https://www.facebook.com/clapdesign.cz/)
+
+### Dandylion
+#### Má maličká značka šperků Dandylion vznikla skoro před pěti lety, od té doby dělám radost Vám i Vašim blízkým výrobou květinových šperků. V současnosti zaznamenávám pokles objednávek na e-shopu a podle všeho se dlouho nebudou konat různé designové markety, které jsou důležitým zdrojem mých příjmů. Pokles tedy bude zřejmě dlouhodobý.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Budu moc ráda, když se podíváte ke mně na e-shop a potěšíte sebe nebo někoho ze svých blízkých některou z květinových půvabností. Anebo se třeba zmiňte přátelům. Děkuji, Katka ✽
+
+Webové stránky: [dandylion.cz](https://www.dandylion.cz/)
+
+Instagram/Facebook: [dandylion.cz](https://www.instagram.com/dandylion.cz)/[dandylion.cz](https://www.facebook.com/dandylion.cz/)
+
+### Care & Cake
+#### Zdravé dezerty bez lepku a cukru tvořené s láskou z čistě rostlinných surovin
+#### Výše ztráty k 31. 3. 2020: desetitisíce
+
+Forma pomoci: Každá objednávka nám pomůže a věřím, že vám udělá dobře po těle i na duši.
+
+Webové stránky: [careandcake.cz](https://careandcake.cz/)
+
+Facebook: [careandcake](https://www.facebook.com/careandcake/)
+
+### DARK / Concept Store
+#### Store s českou a slovenskou designérskou módou a doplňky zaměřený na streetwear a oblečení tmavých barev
+#### Výše ztráty k 31. 3. 2020: 35 000
+
+Forma pomoci: Podpořit nás můžete zakoupením dárkových poukazů v hodnotách 500, 1000 a 2000 Kč a jako poděkování od nás navíc k poukazu dostanete 10% slevu na celý nákup.
+Určitě má někdo z vašich blízkých v budoucích měsících narozeniny a jistě bude mít radost, že jeho dárek znamenal pro jednoho designéra opravdu mnoho. Rádi vám poukaz také dárkově zabalíme do krásné obálky s mašlí.
+
+Webové stránky: [darkstore.cz](https://www.darkstore.cz/)
+
+Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_store)/[darkconceptstore](https://www.facebook.com/darkconceptstore/)
+
+### mamacoffee
+#### Pražírna kávy a kavárenství
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Můžete nás podpořit nákupem na našem e-shopu: https://eshop.mamacoffee.cz/zrnkova-mleta-kava/
+
+Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
+
+Instagram/Facebook: [mama_coffee](https://www.instagram.com/mama_coffee)/[mamacoffee](https://www.facebook.com/mamacoffee/)
+
+### Stehlík design
+#### Jsme manželé Alice a Petr a v roce 2015 jsme založili rodinnou porcelánovou dílnu. Na plný úvazek se věnujeme výrobě porcelánových šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů s designem, které jsou nyní zavřené a díky vládním nařízením, jsme také přišli o zakázky, které se nyní nemohou realizovat. Jediný příjem, který momentálně pokrývá naše výdaje je rodičovský příspěvek, který pobíráme na naši dvouletou dceru a e-shop.  Každý týden teď na e-shop přidáváme nové produkty, starší i nové kolekce aby naši zákazníci měli z čeho vybírat. Během dubna chystáme novou kolekci broží z barevného porcelánu. V dílně se snažíme nezastavovat a stále vyrábět a pokud to půjde rádi bychom opět vystavovali na Designbloku 2020 s naší experimentální tvorbou.
+#### Výše ztráty k 31. 3. 2020: 35 000
+
+Forma pomoci: Na e-shopu nově nabízíme dopravu zdarma na všechny objednávky a máme připravené dárkové poukazy už od 250 Kč. Každá objednávka nám pomůže zajistit nejen chod naší dílny ale i naší domácnosti. Za každý i malý nákup budeme vděční a budeme se Vám moci odvděčit porcelánovou radostí i v budoucnu.
+
+Webové stránky: [stehlikdesign.cz](https://stehlikdesign.cz/)
+
+Instagram/Facebook: [stehlikdesign](https://www.instagram.com/stehlikdesign)/[stehlikdesign](https://www.facebook.com/stehlikdesign)
+
+### Mumray
+#### Od roku 2008 vyrábíme zavazadla všeho druhu. Výhradně v Čechách, s úctou k řemeslu a lidské práci a s ohledem na životní prostředí.
+#### Výše ztráty k 31. 3. 2020: přes 30 000
+
+Forma pomoci: Nákupem na našem eshopu. Případně zakoupením poukazu do naší kamenné prodejny.
+
+Webové stránky: [mumray.cz](https://mumray.cz/)
+
+Instagram/Facebook: [mum.ray](https://www.instagram.com/mum.ray)/[mum.ray](https://www.facebook.com/mum.ray/)
+
+### Anna Schwitzer
+#### Navrhujeme kolekce ručně vyráběných hedvábných šátků pro každou příležitost
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Připravili jsme pro Vás poštovné zdarma a malé poděkování ve formě kresby. Budeme vděčni za nákup na našem e-shopu nebo sdílení na Instagramu nebo Facebooku. #malynakupvelkapomoc 
+
+Webové stránky: [annaschwitzer.com](https://www.annaschwitzer.com)
+
+Instagram: [annaschwitzer](https://www.instagram.com/annaschwitzer/)
+
 ### SUPERMARKET WC
 #### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
