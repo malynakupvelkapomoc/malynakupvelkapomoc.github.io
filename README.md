@@ -1,4 +1,4 @@
-**UPDATE 31. 3. 2020**  
+**UPDATE 1. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,56 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### Rebelion ateliér
+#### V Rebelion ateliéru pořádáme kurzy šití pro zájemce, kteří by rádi pronikli do tajů tohoto řemesla. Přece jen má šití v naší republice velkou historii. V nabídce máme hned několik typů kurzů. Všem našim účastníkům se věnují školení lektoři, kteří mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se věnují šití s láskou. Zakládáme si na tom, aby se u nás účastíci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Jelikož jsme zastoupeni ve 4 městech (Praha, Brno, Olomouc, Plzeň), nenáročenější je pro nás udržet nájmy ateliérů a naše lektory. Abychom to vše zvládli, připravili jsme si merch - plátěnou tašku a triko s naším novým logem, které ušijí naši lektoři. Za svou práci dostanou zaplaceno a zároveň částí výdělku pokryjeme naše výdaje. Také jsme si připravili poukazy na kurzy šití, kdy si zájemce může poukaz zakoupit a poté jej kdykoliv během 1 roku uplatnit na náš kurz. V nabídce nechybí ani předplatné, kdy bude zájemci, po dobu 5 měsíců, přicházet měsíčně jeden balíček s návodem na ušití produktu.
+
+Webové stránky: [rebelionatelier.cz](http://rebelionatelier.cz/eshop/)
+
+Instagram/Facebook: [rebelion_atelier](https://www.instagram.com/rebelion_atelier/)
+
+### Girls Without Clothes s.r.o.
+#### Prodej a výroba lokálního oblečení
+#### Výše ztráty k 1. 4. 2020: 150000
+
+Forma pomoci: Nákup na e-shopu, sdílení našich příspěvků a pozitivní šíření značky
+
+Webové stránky: [girlswithoutclothes.cz](https://www.girlswithoutclothes.cz/)
+
+Instagram/Facebook: [girlswithoutclothes](https://www.instagram.com/girlswithoutclothes/)/[rebelionatelier](https://www.facebook.com/rebelionatelier/)
+
+### Chuť Moravy
+#### Výroba a prodej zapomenutých delikates
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslená
+
+Forma pomoci: Zakoupení podpůrného voucheru na nákup našich delikates, vín nebo dárkových balení na e-shopu. Ke každému voucheru přidáme jako poděkování skleničku naší nejúspěšnější delikatesy Svatojánských ořechů s osobním poděkováním. 
+
+Webové stránky: [chutmoravy.cz](http://www.chutmoravy.cz)
+
+Facebook/Instagram: [chutmoravy](https://www.facebook.com/chutmoravy/)/[chut_moravy](https://www.instagram.com/chut_moravy/)
+
+### Kokedamy.cz
+#### Vyrábíme a prodáváme kokedamy - rostliny v mechové kouli, které se vám můžou zavěšené pohupovat po bytě. Kokedamy pochází z Japonska a jedná se o moderní trend v pěstování rostlin. Naše výrobky jsou vyráběny ručně, s láskou k přírodě. Kokedamy nabízíme na talířku, závěsné a levitující, které jinde nekoupíte. Budeme rádi za návštěvu našeho e-shopu.
+#### Výše ztráty k 1. 4. 2020: přibližně 120 000
+
+Forma pomoci: Každá objednávka učiněná přes náš internetový obchod nám moc pomůže a věříme, že kokedama udělá velkou radost i vám nebo obdorovanému. Po Praze nabízíme vlastní rozvoz, odesílání poštou bude obnoveno v řádu dnů - jakmile se trošku oteplí, aby se rostlinky cestou nenachladily. Můžete nám pomoct i sdílením na sociálních sítích. Děkujeme za podporu a přejeme co nejvíce zdraví a dobré nálady.
+
+Webové stránky: [kokedamy.cz](https://www.kokedamy.cz)
+
+Facebook: [kokedamy](https://www.facebook.com/kokedamy/)
+
+### za5dvanáct
+#### #za5dvanact čas na hodinky, šperky a dopňky
+#### Výše ztráty k 1. 4. 2020: 50000
+
+Forma pomoci: Prodejna musí být zavřená, ale e-shop jede bez omezení. Nakupte u nás se symbolickou slevou. Použijte slevový kód MALYNAKUPVELKAPOMOC nebo pořiďte dárkový poukaz a darujte ho někomu třeba až na Vánoce. Děkujeme
+
+Webové stránky: [za5dvanact.cz](https://za5dvanact.cz)
+
+Instagram: [za5dvanact](https://www.instagram.com/za5dvanact/)
 
 ### Renáta Jančo Design
 #### Vytvářím jednoduchý, funkční, módní design s absencí zbytečných ozdob, ukazuji krásu a sílu jednoduchosti i elegance neformálního stylu. Přináším tak dávku čerstvého vzduchu do svých návrhů a čisté linie s jemnými detaily, které jsou obvykle spojeny do monochromatických outfitů. Chci, aby lidé prostřednictvím mé tvorby získali zdravé sebevědomí a tím vyšší dávku denního štěstí. Svou tvorbu vyrábím výhradně v České republice, na mé rodné Moravě a to pouze z kvalitních materiálů.
@@ -975,7 +1025,7 @@ Instagram/Facebook: [kadanik_](https://www.instagram.com/kadanik_/)
 
 ### Papelote
 #### Papírenská dílna a grafické studio, provoz kamenného obchodu
-#### Výše ztráty k 24. 3. 2020: Předpokládaná výše ztráty ke konci dubna – 1 000 000 Kč 
+#### Výše ztráty k 24. 3. 2020: Předpokládaná výše ztráty ke konci dubna – 200 000 Kč 
 
 Forma pomoci: Smyslem papelote vždy bylo a bude přinášet lidem radost, inspirovat, motivovat ke kreativitě a podporovat odvahu a pozitivní myšlení. Rádi bychom v tom pokračovali i nadále a proto budeme vděčni za jakoukoliv drobnou podporu z vaší strany, za každou objednávku na našem eshopu, který zůstává v provozu s možností doručení domů či možností poslat někomu z vašich blízkých nebo přátelů náš produkt jako dárek z bezpečí domova. 
 
