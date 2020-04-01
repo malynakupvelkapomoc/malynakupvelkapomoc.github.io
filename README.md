@@ -212,16 +212,6 @@ Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
 
 Facebook/Instagram: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
 
-### yo_soy
-#### Minimalistické šperky z moderních materiálů
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Ráda se zákaznicemi setkávám na různých design marketech a je to pro mne důležitý zdroj příjmů - tyto hromadné akce se ale dlouho nebudou konat. Stejně tak jsou nyní uzavřené lokální obchody, kam šperky dodávám.  Proto budu ráda, když si vyberete šperk přes internet z mého e-shopu, kde nyní nabízím poštovné zdarma. Můžete potěšit sebe nebo někoho blízkého a zároveň mne podpořit v nelehké situaci. Děkuji!
-
-Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
-
-Facebook/: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
-
 ### JANNAMI
 #### Obchod s českou a slovenskou 100% přírodní kosmetikou. V našem obchodě najdete více než 15 českých a slovenských značek většinou ručně vyráběné kosmetiky, kterou firmy vyrábí výhradně z přírodních surovin té nejvyšší kvality.   
 #### Výše ztráty k 31. 3. 2020: 80000
