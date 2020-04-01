@@ -8,6 +8,57 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Emhandmade s.r.o.
+#### JS(EM)  originalita, kvalita, pohodlí, minimalismus, rodinná firma, splněný sen, individuální přistup a láska.  Jsem tvoje lokální módní značka! 
+#### Výše ztráty k 1. 4. 2020: 500000
+
+Forma pomoci: Nabízíme poštovné zdarma, roušku ke každé objednávce nad 1000 Kč zdarma, dále slevu 12% s kódem DYZAJNBUDE a každý den dáváme speciální VELKÉ slevy na vybrané skladovky!
+
+Webové stránky: [emhandmade.cz](https://www.emhandmade.cz/)
+
+Facebook: [emhandmadefashion](https://www.facebook.com/emhandmadefashion/)
+
+
+### Q U B U S
+#### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Každá objednávka nám pomůže. Aktuálně nabízíme 20% slevu na produkty značky QUBUS a 10% na vše ostatní. Zboží jsme schopni bez problémů odeslat nebo přichystat k osobnímu vyzvednutí.
+
+Webové stránky: [qubus.cz](https://eshop.qubus.cz/)
+
+Instagram/Facebook: [qubusdesign](https://www.instagram.com/qubusdesign)/[qubusdesignstudio](https://www.facebook.com/qubusdesignstudio)
+
+### ELAJEIOVA
+#### Výrábím kožené tašky, kožené doplňky.
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Snížila jsem cenu u nejoblíbenějšího produktu - velké kožené tašky NATURAPURA a peněženky FOGLIA - k nákupu Vám také přibalím bavlněnou roušku.  Vše doplním drobnými ilustracemi, které Vás potěší na duši:) Balíček Vám doručí kurýr DPD až ke dveřím.
+
+Webové stránky: [elajediova.com](https://www.elajediova.com/)
+
+Instagram: [elajediova](https://www.instagram.com/elajediova/)
+
+### ČILANGO coffee
+#### Pražírna kávy
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Můžete nás podpořit objednávkou naší mexické výběrové kávy - v Praze rozvážíme zdarma (www.facebook.com/cilango.coffee)
+
+Webové stránky: [cilango.com](http://cilango.com/)
+
+Instagram/Facebook: [kava.cilango]( https://www.instagram.com/kava.cilango/)/[ilango.coffee ](www.facebook.com/cilango.coffee / )
+
+### Vazárna
+#### Zakázkové papírnictví, knihařská dílna
+#### Výše ztráty k 1. 4. 2020: 120 000,-
+
+Forma pomoci: Objednávkou zboží na našem eshopu www.vazarna.cz. Nabízíme ručně vázané diáře, zápisníky, sešity, fotoalba, první knihy a jiné papírové výrobky. Veškeré výrobky vyrábíme v naší malé dílně co nejšetrněji s důrazem na udržitelnost.
+
+Webové stránky: [vazarna.cz](https://www.vazarna.cz)
+
+Instagram/Facebook: [vazarna](https://www.instagram.com/vazarna/)/[vazarna](https://www.facebook.com/vazarna/)
+
 ### Rebelion ateliér
 #### V Rebelion ateliéru pořádáme kurzy šití pro zájemce, kteří by rádi pronikli do tajů tohoto řemesla. Přece jen má šití v naší republice velkou historii. V nabídce máme hned několik typů kurzů. Všem našim účastníkům se věnují školení lektoři, kteří mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se věnují šití s láskou. Zakládáme si na tom, aby se u nás účastíci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
 #### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
@@ -16,7 +67,7 @@ Forma pomoci: Jelikož jsme zastoupeni ve 4 městech (Praha, Brno, Olomouc, Plze
 
 Webové stránky: [rebelionatelier.cz](http://rebelionatelier.cz/eshop/)
 
-Instagram/Facebook: [rebelion_atelier](https://www.instagram.com/rebelion_atelier/)
+Instagram/Facebook: [rebelion_atelier](https://www.instagram.com/rebelion_atelier/)/[rebelion_atelier](https://www.facebook.com/rebelionatelier/)
 
 ### Girls Without Clothes s.r.o.
 #### Prodej a výroba lokálního oblečení
