@@ -8,6 +8,18 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### DEERS
+#### České šperky jelínků a laní. Vše vyrábíme ručně ve vinohradském atelieru s důrazem na detail.
+#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: "Každá objednávka je pro nás podporou.
+Na e-shopu jsou všechny šperky jelínků a laní skladem, posíláme poštou a je možné si objednaný šperk vyzvednout v předem domluvený čas přímo v atelieru. Naše Laně pomáhají nadaci Krása pomoci, která se stará o potřeby seniorů. Z každé prodané laně posíláme nadaci 50 korun. Nabízíme dárkové vouchery - posíláme poštou i online. Všechnu dopravu máme do odvolání ZDARMA.
+Máme také v nabídce materiál ke tvoření pro děti z nespotřebovaných kousků koženek, korálků i mašliček. Materiál tak dostane nové využití.
+
+Webové stránky: [deers.cz](http://deers.cz/eshop/cs/)
+
+Instagram/Facebook: [deerscz](https://www.instagram.com/deerscz/)/[deers.kamila](https://www.facebook.com/DEERS.KAMILA/)
+
 ### Emhandmade s.r.o.
 #### JS(EM)  originalita, kvalita, pohodlí, minimalismus, rodinná firma, splněný sen, individuální přistup a láska.  Jsem tvoje lokální módní značka! 
 #### Výše ztráty k 1. 4. 2020: 500000
