@@ -347,7 +347,7 @@ Instagram: [tyformy](https://www.instagram.com/tyformy/ )
 #### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže hravo nahradiť plastovú fóliu v každej domácnosti. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce aspoň malým krokom prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k našej prírode.
 #### Výše ztráty k 30. 3. 2020: 2000
 
-Forma pomoci: Až to odvolania si v našom e-shope môžete kúpiť akýkoľvek produkt s poštovným ZADARMO do celej SR a ČR a s kódom PRVEPEELO môžete navyše získať zľavu 10% na prvý nákup. Ak chcete v týchto dňoch obdarovať niekoho, kto má sviatok alebo len tak potešiť niekoho praktickým a ekologickým darčekom, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
+Forma pomoci: Až do odvolania si v našom e-shope môžete kúpiť akýkoľvek produkt s poštovným ZADARMO do celej SR a ČR a s kódom PRVEPEELO môžete navyše získať zľavu 10% na prvý nákup. Ak chcete v týchto dňoch obdarovať niekoho, kto má sviatok alebo len tak potešiť niekoho praktickým a ekologickým darčekom, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
 
 Webové stránky: [peelo.store](https://peelo.store/)
 
