@@ -1,4 +1,4 @@
-**UPDATE 2. 4. 2020**  
+**UPDATE 3. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,39 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### je tu milo
+#### malý dárek, velká radost... Přinášíme vám originální výrobky od českých a slovenských designérů, tvůrců a lokálních firem. Kousky s příběhem a duší, které si zamilujete.
+#### Výše ztráty k 3. 4. 2020: zatím nevyčíslena 
+
+Forma pomoci: I malý nákup pomůže nejen nám, ale především našim českým designérům, tvůrcům a malým českým rodinným firmám. Velká část zisku jde totiž právě k nim. 
+Pokud vyberete dárek, rádi Vám ho zdarma zabalíme, ručně napíšeme blahopřání a pošleme oslavenci. No a když si nebudete vědět rady, můžete zkusit naše dárkové poukazy.
+
+Webové stránky: [jetumilo.cz](https://www.jetumilo.cz/)
+
+Instagram/Facebook: [jetuMILO](https://www.instagram.com/jetuMILO/)/[jetumilo](https://www.facebook.com/jetumilo/)
+
+### FashionShop PARAZIT
+#### Jsme Váš lokální obchod v centru Prahy. Prodáváme současný česko-slovenský design, módu, doplňky, šperky i užité umění za dostupné ceny. Spolupracujeme se studenty a mladými návrháři a již 15 let nabízíme domácí alternativu ke komerčním zahraničným značkám. 
+#### Výše ztráty k 3. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Věríme, že spolu to zvládneme! Zejména když si všichni uvědomíme, že nakupovat nekvalitní zboží z Číny místo podpory domácího  průmyslu nedává úplně smysl nejen v čase krize.
+Než se uvidíme v kamenné prodejně v prázdném a krásném centru Prahy (vláda a vaše chuť nakupovat rozhodnou kdy to bude 😉), můžete u nás online zakoupit dárkové poukazy, nakoupit na eshopu nebo nás podpořit na socialních sítích.
+Děkujeme a těšíme se na viděnou!!! 
+
+Webové stránky: [parazit.cz](http://www.parazit.cz/)
+
+Facebook: [FashionshopParazit](https://www.facebook.com/FashionshopParazit/)
+
+### Woxkon
+#### Batohy Woxkon byly navrženy a pečlivě vyrobeny v České republice. U jejich zrodu stála láska k přírodě a městu, radost z tvoření, ale i úcta k lidské práci a respekt k naší planetě. Proto se snažíme neustále zlepšovat a hledat možnosti a spolupráce, které tyto myšlenky podporují. Cílem nebylo vyrobit jen další spotřební zboží, ale batoh, který vám vydrží léta. 
+#### Výše ztráty k 3. 4. 2020: desetitisíce 
+
+Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu. Nikdo nevíme, co bude, ale věříme, že to všechno zvládneme. Co nejdříve. Abychom se mohli zase vrátit do školy, do práce a věnovat se věcem, které nás nejvíce naplňují. 🌍 Při zadání slevového kódu SPOLU získáte 20 % slevu na celou objednávku. A poštovné platíme my. 
+
+Webové stránky: [woxkon.cz](https://www.woxkon.cz)
+
+Instagram/Facebook: [woxkon_batohy](https://www.instagram.com/woxkon_batohy/)/[woxkon](https://www.facebook.com/woxkon/)
 
 ### Brašnářství Lukáš Ardolf
 #### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
