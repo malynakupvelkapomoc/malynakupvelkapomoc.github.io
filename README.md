@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Utopy wear
+#### Navrhujeme, šijeme a prodáváme lokální oblečení.
+#### Výše ztráty k 2. 4. 2020: 80 000
+
+Forma pomoci: Pomůžete nám nákupem na našem eshopu, který stále plně funguje a dokonce na něm můžete najít i pár slev a nebo roušky, které prodáváme pouze za cenu nákladů. ^_^ Stejně tak nám pomůže i  sdílení našich příspěvků na sociálních sítí a pozitivní šíření značky. Věříme, že nakupem našeho slow fashion zboží si uděláte radost a vybavíte se nejen na domací cvičení. :)
+
+Webové stránky: [utopy.cz](https://www.utopy.cz/)
+
+Instagram: [utopystore](https://www.instagram.com/utopystore/)
+
 ### TIMOURE ET GROUP
 #### Vyrábíme autorskou módu už od roku 1992. Šijeme v českých menších dílnách z kvalitních látek z Evropské unie. Máme dva obchody v centru Prahy, kde nabízíme čtyřikrát ročně nové kolekce. 
 #### Výše ztráty k 2. 4. 2020: zatím nevyčíslena
