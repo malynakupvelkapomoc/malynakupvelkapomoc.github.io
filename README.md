@@ -8,6 +8,19 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Brašnářství Lukáš Ardolf
+#### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
+#### Výše ztráty k 2. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: "Tak samozřejmě nákupem již hotového výrobku z mé nabídky :-) na - http://ardolflukas.cz/eshop/produkty
+
+Nebo si můžete na základě mé nabídky vymyslet svůj vlastní originální kousek a vyrobím Vám jej na přání... (ideální komunikační kanál - FB - viz níže). Každopádně budu rád i za nové fanoušky na mém FB - www.facebook.com/ardolf.lukas.cz
+či www.instagram.com/brasnarstvi_ardolf_lukas/
+
+Webové stránky: [ardolflukas.cz](http://ardolflukas.cz/)
+
+Instagram/Facebook: [brasnarstvi_ardolf_lukas](https://www.instagram.com/brasnarstvi_ardolf_lukas/)/[ardolf.lukas.cz](https://www.facebook.com/ardolf.lukas.cz)
+
 ### Utopy wear
 #### Navrhujeme, šijeme a prodáváme lokální oblečení.
 #### Výše ztráty k 2. 4. 2020: 80 000
