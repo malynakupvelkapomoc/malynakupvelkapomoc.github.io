@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### TIMOURE ET GROUP
+#### Vyrábíme autorskou módu už od roku 1992. Šijeme v českých menších dílnách z kvalitních látek z Evropské unie. Máme dva obchody v centru Prahy, kde nabízíme čtyřikrát ročně nové kolekce. 
+#### Výše ztráty k 2. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Nová jarní kolekce je momentálně zavřená v našich obchodech, zákaznice se k ní tak nedostanou. Prohlédnout si ji mohou na našich stránkách nebo Facebooku. Potěší nás objednávky oblečení a nově i dárkových voucherů na e-mailu nebo messengeru. Zasíláme poštou, přepravu hradíme my. Každý jeden nákup nás podpoří. Věříme, že slušet nám to může za jakýchkoli okolností.
+
+Webové stránky: [timoure.cz](http://www.timoure.cz/)
+
+Instagram/Facebook: [timoure_et_group](https://www.instagram.com/timoure_et_group/)/[timoure.et.group](https://www.facebook.com/timoure.et.group)
+
 ### DEERS
 #### České šperky jelínků a laní. Vše vyrábíme ručně ve vinohradském atelieru s důrazem na detail.
 #### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
@@ -29,7 +39,6 @@ Forma pomoci: Nabízíme poštovné zdarma, roušku ke každé objednávce nad 1
 Webové stránky: [emhandmade.cz](https://www.emhandmade.cz/)
 
 Facebook: [emhandmadefashion](https://www.facebook.com/emhandmadefashion/)
-
 
 ### Q U B U S
 #### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
@@ -59,7 +68,7 @@ Forma pomoci: Můžete nás podpořit objednávkou naší mexické výběrové k
 
 Webové stránky: [cilango.com](http://cilango.com/)
 
-Instagram/Facebook: [kava.cilango]( https://www.instagram.com/kava.cilango/)/[ilango.coffee ](www.facebook.com/cilango.coffee / )
+Instagram/Facebook: [kava.cilango]( https://www.instagram.com/kava.cilango/)/[cilango.coffee ](www.facebook.com/cilango.coffee/)
 
 ### Vazárna
 #### Zakázkové papírnictví, knihařská dílna
