@@ -8,6 +8,17 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Poketo nakladatelství / Martina Hamouzová
+#### Jsme tři matky, které vytváříme to, co nám chybí: miniknihy, vzdělávací materiály zejména k učení české abecedy a kreativní sety pro děti. Podporujeme učení hrou a kreativitu. Náš styl je esteticky jednoduchý, srozumitelný pro děti. Vyrábíme v Česku.  
+#### Výše ztráty k 3. 4. 2020: Desetitisíce
+
+Forma pomoci: Velmi nám pomůžete, pokud si objednáte naše zboží v e-shopu. Dosud jsme se zaměřovaly hlavně na osobní prodej na knižních a designových trzích, v mnohem menší míře online. Vzhledem k tomu, že nyní již pět plánovaných akcí bylo zrušeno a prodejny jsou uzavřené, závisíme na prodeji online. 
+Protože se oplátkou snažíme ulehčit rodinám doma, nabízíme týdně jeden kreativní list k stažení zdarma z našeho webu. Berte to jako dárek od nás pro ty, kteří chtějí kreativně zabavit děti v karanténě.  
+
+Webové stránky: [poketo.cz](https://www.poketo.cz)
+
+Instagram/Facebook: [poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)/[poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)
+
 ### je tu milo
 #### malý dárek, velká radost... Přinášíme vám originální výrobky od českých a slovenských designérů, tvůrců a lokálních firem. Kousky s příběhem a duší, které si zamilujete.
 #### Výše ztráty k 3. 4. 2020: zatím nevyčíslena 
