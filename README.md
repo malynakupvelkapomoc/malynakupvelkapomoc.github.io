@@ -1,4 +1,4 @@
-**UPDATE 3. 4. 2020**  
+**UPDATE 5. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### Panoply - oslavy z papíru 
+#### Jsme nové české papírnictví – máme za sebou první půl rok. Navrhujeme a vyrábíme autorské papírové ozdoby pro svatby, oslavy, ale i k ozvláštnění všedního dne. Naše výrobky jsou vytvořeny pro opakované využití, nevytváříme tedy odpad, ale dekorace, které mohou být součástí vašich domovů po dlouhou dobu. 
+#### Výše ztráty k 4. 4. 2020: 30000
+
+Forma pomoci: Při koupi produktů nad 500 Kč poštovné zdarma + malý dárek a velké díky v balíčku.  
+
+Webové stránky: [panoply.cz](https://panoply.cz/)
+
+Instagram/Facebook: [Panoply.cz](https://www.instagram.com/Panoply.cz)/[panoply.cz](www.facebook.com/Panoply.cz)
 
 ### Poketo nakladatelství / Martina Hamouzová
 #### Jsme tři matky, které vytváříme to, co nám chybí: miniknihy, vzdělávací materiály zejména k učení české abecedy a kreativní sety pro děti. Podporujeme učení hrou a kreativitu. Náš styl je esteticky jednoduchý, srozumitelný pro děti. Vyrábíme v Česku.  
@@ -17,7 +27,7 @@ Protože se oplátkou snažíme ulehčit rodinám doma, nabízíme týdně jeden
 
 Webové stránky: [poketo.cz](https://www.poketo.cz)
 
-Instagram/Facebook: [poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)/[poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)
+Instagram/Facebook: [poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)/[poketo_nakladatelstvi](https://www.facebook.com/poketo_nakladatelstvi)
 
 ### je tu milo
 #### malý dárek, velká radost... Přinášíme vám originální výrobky od českých a slovenských designérů, tvůrců a lokálních firem. Kousky s příběhem a duší, které si zamilujete.
