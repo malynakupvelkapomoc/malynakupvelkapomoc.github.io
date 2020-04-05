@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Vika Mayzel.Jewelry
+#### Design a ruční výroba moderních šperků
+#### Výše ztráty k 5. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Rada se svými zákazníky potakávám osobně, ale kvůli omezení volného pohybu osob, nebudou se konat designové markety, provoz mého studia-showroomu je omezen a kromě toho, uzavřené jsou i lokální obchody, kam šperky dodávám. Stále je možnost si něco vybrat na e-shopu a potěšit tak sebe nebo někoho ze svých blízkých. Poštovné je zcela zdarma, na vybrané výrobky je akce -30%.
+
+Webové stránky: [vikamayzel.com](https://www.vikamayzel.com//)
+
+Instagram: [vikamayzel](https://www.instagram.com/vikamayzel)
+
 ### Panoply - oslavy z papíru 
 #### Jsme nové české papírnictví – máme za sebou první půl rok. Navrhujeme a vyrábíme autorské papírové ozdoby pro svatby, oslavy, ale i k ozvláštnění všedního dne. Naše výrobky jsou vytvořeny pro opakované využití, nevytváříme tedy odpad, ale dekorace, které mohou být součástí vašich domovů po dlouhou dobu. 
 #### Výše ztráty k 4. 4. 2020: 30000
