@@ -8,6 +8,17 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Blooming 
+#### Jsme kreativní květinové studio v centru Dejvic, které staví na 20-ti leté zkušenosti. Zaměřujeme se na profesionální vazbu květin, neotřelé dekorace, a především na svatební floristiku. 
+#### Výše ztráty k 5. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme moc rádi, pokud nás podpoříte koupí květiny nebo jarní/velikonoční dekorací. Vše Vám  nebo Vašim blízkým doručíme zdarma do Vašich domovů či na pracoviště. Věříme, že Vám květiny vykouzlí úsměv na tváři a provoní vaše domovy nebo místa, které si chcete zpříjemnit.
+Malý nákup, velká pomoc pro nás. Objednávat můžete emailem, telefonicky, SMS nebo přes sociální sítě.
+
+Webové stránky: [blooming.cz](http://blooming.cz/)
+
+Instagram/Facebook: [blooming.cz](https://www.instagram.com/blooming.cz/) [blooming.cz](https://www.facebook.com/blooming.cz/)
+
 ### Vika Mayzel.Jewelry
 #### Design a ruční výroba moderních šperků
 #### Výše ztráty k 5. 4. 2020: zatím nevyčíslena
