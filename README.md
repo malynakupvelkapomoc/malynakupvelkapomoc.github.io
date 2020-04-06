@@ -8,6 +8,35 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Nela porcelán
+#### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
+#### Výše ztráty k 6. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Než to půjde - jsme schopni všechny naše kousky, stejně tak jako dárkové poukazy, zasílat poštou. Kontaktujte mě prosím nejlépe přes email. Domluvíme se individuálně na vašem konkrétním přání. 
+Až to půjde - vzpomeňte si na nás a udělejte si výlet do Mariánských Lázní. Je tu krásně! Uděláme vám dobrou kávu, ukážeme ateliér, necháme nahlédnout pod pokličku a poradíme, co všechno je tu k vidění. Těším se na vás! Nela
+
+Webové stránky: [nela-porcelan.cz](https://nela-porcelan.cz/)
+
+Facebook: [nelaporcelan](https://www.facebook.com/nelaporcelan/)
+
+### Čajovna Hakuhō
+#### Jsme malá čajovna v centru Olomouce. Otevřeli jsme docela nedávno, 1.2., tedy měsíc a kousek před vyhlášením nouzového stavu. Nabízíme kvalitní čaje a dýmky, teď jsme zřídili alespoň e-shop pro nákup sypaných čajů.
+#### Výše ztráty k 6. 4. 2020: 200000
+
+Forma pomoci: Pomoci nám můžete zakoupením sypaného čaje. Pokud si jej nebudete přát vyzvednout osobně, můžete si jej nechat doručit poštou a my vám poštovné nebudeme účtovat.
+
+Webové stránky: [hakuho.cz](https://www.hakuho.cz/eshop)
+
+### Balkanova 
+#### Dovoz a prodej tkaných vlněných dek, koberců, ručně tkaných přehozů, kilimů, látek a jiných doplňků s původem na Balkáně, konkrétně v Bulharsku a Řecku (např. bulharská vína, přírodní kosmetika, apod.). Společnými rysy našich výrobků jsou přírodní materiály a suroviny, šetrný způsob výroby a velký podíl tradiční ruční práce. 
+#### Výše ztráty k 6. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Každý zákazník, který do poznámky objednávky napíše heslo malynakupvelkapomoc dostane podle hodnoty objednávky dárek od nás, např. lahev červeného bulharského vína, balení naší přírodní kosmetiky, vlněné ponožky, případně něco dalšího dle individuální domluvy. Na stránce je i oddíl se zbožím, které je momentálně v akci. Individuální sleva možná!
+
+Webové stránky: [balkanova.eco](https://balkanova.eco/)
+
+Instagram/Facebook: [balkanova_eco](https://www.instagram.com/balkanova_eco/) [balkanova]( https://www.facebook.com/vlnene.deky/)
+
 ### Blooming 
 #### Jsme kreativní květinové studio v centru Dejvic, které staví na 20-ti leté zkušenosti. Zaměřujeme se na profesionální vazbu květin, neotřelé dekorace, a především na svatební floristiku. 
 #### Výše ztráty k 5. 4. 2020: zatím nevyčíslena
