@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Peter James Proud
+#### Šijeme košile a dámské košilové šaty na míru, obleky, noční prádlo a další doplňky z nejkvalitnějších materiálů z Evropy. Vyrábíme trika s designovým digitálním potiskem v kolekci I'm not old, I'm a Master.
+#### Výše ztráty k 7. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Látky z aktuální kolekce jaro léto připraveny. Potěší nás nákup voucherů které budou mít neomezenou platnost. Zašleme zdarma s designovou rouškou z naší kolekce. Roušku zdarma přidáme i k nákupu našich designových triček Proud https://eshop.peterjamesproud.cz/kategorie-produktu/trika_proud/.
+
+Webové stránky: [peterjamesproud.cz](https://eshop.peterjamesproud.cz)
+
+Facebook/Instagram: [peterjamesproud](https://www.facebook.com/peterjamesproud/)/[peterjamesproud](https://www.instagram.com/peterjamesproud/)
+
 ### Kavárna U Frinda, sociální podnik Krásná Lípa 
 #### Jsme sociální podnikem v centru Českého Švýcarska v malebném městě Krásná Lípa, zaměstnáváme osoby se zdravotním postižením, v současné době jsme otevřeli prodej kávy, zákusků, zmrzliny s sebou, dále nambízíme nápoje Kitll a balenou naší kávu.
 #### Výše ztráty k 7. 4. 2020: 120 000
@@ -343,7 +353,7 @@ Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_
 #### Pražírna kávy a kavárenství
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
 
-Forma pomoci: Můžete nás podpořit nákupem na našem e-shopu: https://eshop.mamacoffee.cz/zrnkova-mleta-kava/
+Forma pomoci: Mamacoffee je pražírna kávy, kterou vždy pečlivě vybíráme a nakupujeme za důstojných podmínek. Provozujeme několik kaváren a řemeslnou pekárnu. Dbáme na kvalitní suroviny a dodavatele.
 
 Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
 
