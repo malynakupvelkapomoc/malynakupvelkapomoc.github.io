@@ -1,4 +1,4 @@
-**UPDATE 6. 4. 2020**  
+**UPDATE 7. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,36 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### Kavárna U Frinda, sociální podnik Krásná Lípa 
+#### Jsme sociální podnikem v centru Českého Švýcarska v malebném městě Krásná Lípa, zaměstnáváme osoby se zdravotním postižením, v současné době jsme otevřeli prodej kávy, zákusků, zmrzliny s sebou, dále nambízíme nápoje Kitll a balenou naší kávu.
+#### Výše ztráty k 7. 4. 2020: 120 000
+
+Forma pomoci: Zajít si k nám na kávu, zmrzlinu nebo zákusek. Objenat si od nás balenou kávu, nebo nápoje Kitll. dětství. Nabízíme také dárkové poukazy, nebo můžete rovnou poslat někomu překvapení a my k tomu přidáme váš vzkaz. 
+
+Webové stránky: [kavarna-frind.cz](http://www.kavarna-frind.cz/)
+
+Facebook: [kavarna.frind](https://www.facebook.com/kavarna.frind/)
+
+### LORA International
+#### Přivádíme lidi k tomu, aby si našli chvilku pro sebe a trohcu se hýčkali. Prodávame 100 % přírodní koupelové kuličky a v před pár dni jsme přidali i nabídku antibakteriálních gelů.
+#### Výše ztráty k 7. 4. 2020: 80 000-100 000 CZK
+
+Forma pomoci: I malý nákup je pro nás velká pomoc. Při nákupu nad 800 Kč je doprava zdarma. 
+
+Webové stránky: [lorainternational.com](https://www.lorainternational.com/)
+
+Instagram: [lora_international](https://www.instagram.com/lora_international/)
+
+### Hugo chodí bos 
+#### Je první 100% české hračkářství. Pět let píše dějiny české hračky a snaží se dostat české hračky k dětem. V Praze má Hugo dva kamenné obchody a jeden z nich je kvůli aktuální situaci, nucen zavřít navždy.  
+#### Výše ztráty k 6. 4. 2020: 200 000
+
+Forma pomoci: Budeme vděčni za každou objednávku na našem eshopu. Podívejte se k nám, i když třeba nemáte děti. Můžete tak zavzpomínat na své dětství. Nabízíme také dárkové poukazy, nebo můžete rovnou poslat někomu překvapení a my k tomu přidáme váš vzkaz. 
+
+Webové stránky: [hugochodibos.cz](https://www.hugochodibos.cz)
+
+Instagram/Facebook: [hugo_chodi_bos](https://www.instagram.com/hugo_chodi_bos)/[hugochodibos](https://www.facebook.com/hugochodibos/)
 
 ### Nela porcelán
 #### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
