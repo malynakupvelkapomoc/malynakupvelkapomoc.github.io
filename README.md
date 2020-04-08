@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Tkalcovna Kubák 
+#### Naše tkalcovna je malá rodinná firma fungující od roku 1870. Po celou historii podniku spolupracujeme s umělci, designéry, architekty a módními návrháři a tvoříme tak textil s přidanou estetickou, nadčasovou hodnotou.  
+#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup našich výrobků pomůže nejvíce. Dále pak jakákoliv zakázková textilní výroba včetně služeb které nabízíme.
+
+Webové stránky: [tkalcovna.cz](http://www.tkalcovna.cz)
+
+Instagram/Facebook: [tkalcovna](http://instagram.com/tkalcovna)/[TkalcovnaStrmilov](http://facebook.com/TkalcovnaStrmilov)
+
 ### Peter James Proud
 #### Šijeme košile a dámské košilové šaty na míru, obleky, noční prádlo a další doplňky z nejkvalitnějších materiálů z Evropy. Vyrábíme trika s designovým digitálním potiskem v kolekci I'm not old, I'm a Master.
 #### Výše ztráty k 7. 4. 2020: zatím nevyčíslena
