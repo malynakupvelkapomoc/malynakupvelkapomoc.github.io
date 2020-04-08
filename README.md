@@ -1,4 +1,4 @@
-**UPDATE 7. 4. 2020**  
+*UPDATE 8. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### BELDA
+#### Jsme  rodinné šperkařství s dlouholetou tradicí, všechny naše šperky  vyrábíme ručně v  Turnovské dílně.
+#### Výše ztráty k 8. 4. 2020: 100 000
+
+Forma pomoci: Objednáním i malého šperku, jak z naší nabídky,  tak na zakázku, rádi se s Vámi  domluvíme po mailu, či telefonu, doprava zdarma  je samozřejmostí. 
+
+Webové stránky: [belda.cz](https://www.belda.cz)
+
+Instagram/Facebook: [beldafactory](http://instagram.com/beldafactory)/[beldafactory](http://facebook.com/beldafactory)
 
 ### Tkalcovna Kubák 
 #### Naše tkalcovna je malá rodinná firma fungující od roku 1870. Po celou historii podniku spolupracujeme s umělci, designéry, architekty a módními návrháři a tvoříme tak textil s přidanou estetickou, nadčasovou hodnotou.  
