@@ -237,7 +237,7 @@ Webové stránky: [qubus.cz](https://eshop.qubus.cz/)
 
 Instagram/Facebook: [qubusdesign](https://www.instagram.com/qubusdesign)/[qubusdesignstudio](https://www.facebook.com/qubusdesignstudio)
 
-### ELAJEIOVA
+### ELAJEDIOVA
 #### Výrábím kožené tašky, kožené doplňky.
 #### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
 
