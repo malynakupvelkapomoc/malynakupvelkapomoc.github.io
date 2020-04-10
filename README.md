@@ -1,4 +1,4 @@
-*UPDATE 8. 4. 2020**  
+*UPDATE 10. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -7,6 +7,46 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
+
+### ZkusMerino.cz
+#### Vyrábíme a prodáváme merino oblečení pro děti pod značkou Lambio.
+#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Obchůdek máme zavřený a tak budeme moc vděční za jakoukoliv objednávku oblečení přes náš e-shop. Ke každé objednávce nad 1000 Kč přidáme malý prací gel na merino, nad 2000 Kč je doprava zdarma.
+
+Webové stránky: [ZkusMerino.cz](https://www.ZkusMerino.cz)
+
+Facebook: [zkusmerino](www.facebook.com/zkusmerino)
+
+### Papillon dětem
+#### Pod značkou Papillon vydávám malonákladově autorské knížky, hravé obrázky, pexesa , vyrábím autorská razítka a tisknu barevnou litografii. Jeden z mých hlavních příjmů, který je momentálně pozastaven, je pořádání výtvarných dílen a tvořivých workshopů pro děti i dospělé.
+#### Výše ztráty k 8. 4. 2020: 30 000
+
+Forma pomoci: Můžete si objednat cokoliv na mých stránkách knížku, otáčivý obrázek, litografii, razítko, nabízím na stejném místě zdarma ke stažení barevné vystřihovánky pro děti.
+
+Webové stránky: [papillon-detem.cz](http://www.papillon-detem.cz/)
+
+Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-607902755976238/)
+
+### SEVERANKA
+#### Lokálna a etická značka pomalej módy, tvoriaca jedinečnosť a pohodlie s dôrazom na udržateľnosť, ekologickosť a férovosť v móde.
+#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Poštovné zdarma a darček ku každej objednávke. Vďaka vašim objednávkam budeme môcť existovať aj po pandémii
+
+Webové stránky: [severanka.com](https://www.severanka.com/)
+
+Instagram/Facebook: [severanka.sk_slowfashion](https://www.instagram.com/severanka.sk_slowfashion/)/[severanka.sk](https://www.facebook.com/severanka.sk)
+
+### Polagraph
+#### Analogová a polaroidová fotografie, vyvolávání fotografických filmů, ručně dělaná fotoalba, repasované vintage fotoaparáty na film i na Polaroid. 
+#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Nepřestávejte fotit – je jaro, města jsou vylidněná, v přírodě je nádherně, je dlouho světlo, a tak se i doma dají nafotit perfektní snímky. Budeme rádi, když se budete našemu společnému koníčku věnovat i teď, v téhle těžké době! Uděláme všechno proto, abychom vám v tom pomohli. Vyvoláváme a prodáváme filmy i fotoalba, píšeme blogy i tipy a rady. 
+
+Webové stránky: [polagraph.cz](http://www.polagraph.cz)
+
+Instagram/Facebook: [polagraphgallery](https://www.instagram.com/polagraphgallery/)/[PolagraphGallery](www.facebook.com/PolagraphGallery/)
 
 ### BELDA
 #### Jsme  rodinné šperkařství s dlouholetou tradicí, všechny naše šperky  vyrábíme ručně v  Turnovské dílně.
