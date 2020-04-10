@@ -10,7 +10,7 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ### ZkusMerino.cz
 #### Vyrábíme a prodáváme merino oblečení pro děti pod značkou Lambio.
-#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+#### Výše ztráty k 10. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Obchůdek máme zavřený a tak budeme moc vděční za jakoukoliv objednávku oblečení přes náš e-shop. Ke každé objednávce nad 1000 Kč přidáme malý prací gel na merino, nad 2000 Kč je doprava zdarma.
 
@@ -20,7 +20,7 @@ Facebook: [zkusmerino](www.facebook.com/zkusmerino)
 
 ### Papillon dětem
 #### Pod značkou Papillon vydávám malonákladově autorské knížky, hravé obrázky, pexesa , vyrábím autorská razítka a tisknu barevnou litografii. Jeden z mých hlavních příjmů, který je momentálně pozastaven, je pořádání výtvarných dílen a tvořivých workshopů pro děti i dospělé.
-#### Výše ztráty k 8. 4. 2020: 30 000
+#### Výše ztráty k 10. 4. 2020: 30 000
 
 Forma pomoci: Můžete si objednat cokoliv na mých stránkách knížku, otáčivý obrázek, litografii, razítko, nabízím na stejném místě zdarma ke stažení barevné vystřihovánky pro děti.
 
@@ -30,7 +30,7 @@ Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-60790275597
 
 ### SEVERANKA
 #### Lokálna a etická značka pomalej módy, tvoriaca jedinečnosť a pohodlie s dôrazom na udržateľnosť, ekologickosť a férovosť v móde.
-#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+#### Výše ztráty k 9. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Poštovné zdarma a darček ku každej objednávke. Vďaka vašim objednávkam budeme môcť existovať aj po pandémii
 
