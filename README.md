@@ -1055,6 +1055,16 @@ Webové stránky: [mayda.cz](https://www.mayda.cz)
 
 Instagram/Facebook: [mayda.cz](https://www.instagram.com/mayda.cz/)/[maydafashion](https://www.facebook.com/maydafashion)
 
+### Vo-Ka/Padlo do Vo-ka
+#### 3D tištěné šperky a rok otevřený krámek a dílna ve Vršovicích s produkty Vo-Ka a cca 30 spřátelených značek.
+#### Výše ztráty k 27. 3. 2020: 90000
+
+Forma pomoci: Stavit se v krámku, až zase otevře, mrkněte na Fb potažmo Instagram, sdílejte s kamarády. Jasně, pokud koupíte, třeba e-shop nebo fb nebo Instagram komunikace, fáááákt mi to pomůže, ale stejně tak pomůže, když si od spřátelených značek koupíte roušku a za čas šaty, když já teď tisknu 3D štíty, tak vy si koupíte náušnice, třeba za čas... Nechci pomoc, chci sdílet :) Nechci zmizet, chci to překonat. Nechci fňukat, chci bojovat. 
+
+Webové stránky: [vo-ka-shop.cz](http://www.vo-ka-shop.cz/)
+
+Instagram/Facebook: [padlodo]( https://www.instagram.com/padlodo/ , https://www.instagram.com/vo_ka_vocelovakaterina/)/[padlodovoka](facebook.com/padlodovoka)
+
 ### Bistro Franz
 #### Jsme první bistro v modernim duchu v ČR. Snažime se býti mostem mezi farmáři a civilizací ♡
 #### Výše ztráty k 27. 3. 2020: 380 000
