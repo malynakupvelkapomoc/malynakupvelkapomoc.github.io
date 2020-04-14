@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Remix kabelky
+#### Výroba kabeliek, batohov a rôznych doplnkov z pravej tradičnej MODROTLAČE zo slovenskej i českej dielne, ktorá je vyrábaná tradičným spôsobom.
+#### Výše ztráty k 13. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup modrotlačového výrobku v našom e-shope, ku každej objednanej kabelke, či batohu pošleme rúško z modrotlače ako darček.
+
+Webové stránky: [remixkabelky.sk](https://www.remixkabelky.sk/)
+
+Instagram/Facebook: [remix_kabelky](  https://www.instagram.com/remix_kabelky/)/[RemixKabelky](https://facebook.com/RemixKabelky/)
+
 ### Sophia Bohemia s.r.o.
 #### Jsme český výrobce dámského oblečení
 #### Výše ztráty k 13. 4. 2020: zatím nevyčíslena
