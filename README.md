@@ -443,7 +443,7 @@ Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_
 #### Pražírna kávy a kavárenství
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
 
-Forma pomoci: Mamacoffee je pražírna kávy, kterou vždy pečlivě vybíráme a nakupujeme za důstojných podmínek. Provozujeme několik kaváren a řemeslnou pekárnu. Dbáme na kvalitní suroviny a dodavatele.
+Forma pomoci: Se zavřením kaváren se náš kontakt se zákazníky zúžil pouze na e-shop. Prodáváme čerstvě praženou kávu a produkty od lokálních dodavatelů. https://eshop.mamacoffee.cz/zrnkova-mleta-kava/
 
 Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
 
@@ -736,9 +736,9 @@ Instagram: [about.leather](https://www.instagram.com/about.leather/)
 
 ### keramik.ART.studio
 #### prodej autorských originálů na e-shopu
-#### Výše ztráty k 30. 3. 2020: odhadem zatím 15.000Kč
+#### Výše ztráty k 30. 3. 2020: odhadem zatím 30.000Kč
 
-Forma pomoci: nákup na e-shopu
+Forma pomoci: nákup na e-shopu velmi pomůže překonat náklady vynaložené na nákup látek z ledna a února, kdy jsme ještě úplně netušili co se na nás připravuje. Hedvábí je vhodné jako dárek a od 1000Kč poštovné zdarma. 
 
 Webové stránky: [keramikartstudio.cz](https://keramikartstudio.cz)
 
