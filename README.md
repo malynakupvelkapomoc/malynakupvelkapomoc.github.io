@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Sophia Bohemia s.r.o.
+#### Jsme český výrobce dámského oblečení
+#### Výše ztráty k 13. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup našich výrobků na e-shopu, poštovné zdarma, textilní ochranná rouška zdarma k nákupu, akční slevy.
+
+Webové stránky: [sophiabohemia.cz](https://www.sophiabohemia.cz/)
+
+Instagram/Facebook: [sophia_bohemia](https://www.instagram.com/sophia_bohemia/)/[bohemiasophia](http://www.facebook.com/bohemiasophia)
+
 ### BeneWood
 #### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
 #### Výše ztráty k 12. 4. 2020: zatím nevyčíslena
