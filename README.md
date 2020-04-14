@@ -14,16 +14,6 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 Forma pomoci: Na novém e-shopu nabízíme výběr mnoha druhů dřevěných výrobků, poukázek i blog kde můžete nahlédnout do zákulisí značky. 
 
-Webové stránky: [ether.cz](https://www.ether.cz)
-
-Instagram/Facebook: [etherprague](https://www.instagram.com/etherprague)/[ether.cz](https://www.facebook.com/ether.cz/)
-
-### BeneWood
-#### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
-#### Výše ztráty k 12. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Na novém e-shopu nabízíme výběr mnoha druhů dřevěných výrobků, poukázek i blog kde můžete nahlédnout do zákulisí značky. 
-
 Webové stránky: [benewood.cz](https://www.benewood.cz/)
 
 Instagram/Facebook: [bene.wood](https://www.instagram.com/bene.wood/)/[benewoodbene](http://www.facebook.com/benewoodbene)
