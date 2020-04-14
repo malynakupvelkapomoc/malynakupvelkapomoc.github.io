@@ -8,15 +8,25 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
-### Ether
-#### Je české autorské studio založené designérkou Evou Vontorovou. Značka se zabývá výrobou a prodejem převážně dámských kožených doplňků jako jsou kabelky, batohy a pásky, ale i RTW kolekce, tedy oděvů na běžné denní nošení. Značka Ether je charakteristická minimalistickým designem s důrazem na nadčasovost a výběr velmi kvalitních materiálů jako je kůže, vlna či hedvábí. Veškerá výroba doplňků i oděvů probíhá na území České republiky a podporuje tak lokální výrobu.
-#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+### BeneWood
+#### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
+#### Výše ztráty k 12. 4. 2020: zatím nevyčíslena
 
-Forma pomoci: "Pomoci nám můžete nákupem nové kolekce, poukázky nebo oděvů a doplňků přes instagram nebo email. Moc si Vaší pomoci vážíme! Děkujeme a přejeme hodně zdraví za celý Ether team.
+Forma pomoci: Na novém e-shopu nabízíme výběr mnoha druhů dřevěných výrobků, poukázek i blog kde můžete nahlédnout do zákulisí značky. 
 
 Webové stránky: [ether.cz](https://www.ether.cz)
 
 Instagram/Facebook: [etherprague](https://www.instagram.com/etherprague)/[ether.cz](https://www.facebook.com/ether.cz/)
+
+### Ether
+#### Je české autorské studio založené designérkou Evou Vontorovou. Značka se zabývá výrobou a prodejem převážně dámských kožených doplňků jako jsou kabelky, batohy a pásky, ale i RTW kolekce, tedy oděvů na běžné denní nošení. Značka Ether je charakteristická minimalistickým designem s důrazem na nadčasovost a výběr velmi kvalitních materiálů jako je kůže, vlna či hedvábí. Veškerá výroba doplňků i oděvů probíhá na území České republiky a podporuje tak lokální výrobu.
+#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Pomoci nám můžete nákupem nové kolekce, poukázky nebo oděvů a doplňků přes instagram nebo email. Moc si Vaší pomoci vážíme! Děkujeme a přejeme hodně zdraví za celý Ether team.
+
+Webové stránky: [benewood.cz](https://www.benewood.cz/)
+
+Instagram/Facebook: [bene.wood](https://www.instagram.com/bene.wood/)/[benewoodbene](http://www.facebook.com/benewoodbene)
 
 ### ZkusMerino.cz
 #### Vyrábíme a prodáváme merino oblečení pro děti pod značkou Lambio.
