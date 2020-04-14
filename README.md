@@ -1181,6 +1181,18 @@ Webové stránky: [one-day.cz](https://www.one-day.cz/)
 
 Instagram/Facebook: [oneday](https://www.instagram.com/oneday.cz/)[oneday](https://www.facebook.com/oneday.cz/) 
 
+### P R A S K L O 
+#### Kombinuji beton s recyklovaným sklem a tvořím tak umělecké dyzajnové objekty. Prasklo vázy a jiné objekty vynikají skvěle v moderních, ale i tradičních interiérech.
+#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+
+Prasklo si můžete vybrat na webu v galerii, v těchto dnech pro vás máme 10% slevu a poštovné zdarma. Zásilku vám můžeme zaslat k vám domů, nebo také jako dárek někomu koho chcete obdarovat:)
+Také si přes web či email můžete zakoupit dárkový poukaz. 
+Děkujeme za podporu:)
+
+Webové stránky: [prasklo.mozello.com](http://prasklo.mozello.com/)
+
+Instagram: [prasklo](www.instagram.com/prasklo)
+
 ### Tereza Rosalie Kladošová
 #### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
 #### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
@@ -1240,6 +1252,17 @@ Forma pomoci: Na e-shopu si můžete vybrat košili na míru nebo jiný produkt 
 Webové stránky: [shop.hanafrisonsova.com](https://shop.hanafrisonsova.com/)
 
 Instagram/Facebook: [hanafrisonsova](https://www.instagram.com/hanafrisonsova/)/[hanafrisonsova](https://www.facebook.com/hanafrisonsova)
+
+### Zualu design
+#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+Forma pomoci: Dopravné zdarma při nákupu nad 500,- Kč, která platí i pro zakázky na míru! 
+A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Protože vám přijde originální český šperk s rodokmenem, kterým potěšíte nejen sebe, ale i mě... A třeba i někoho, koho tímto kouskem v této těžké době obdarujete - právě teď je radost a pozitivní myšlení nejvíce potřeba! Podpořte udržitelnou tvorbu a předejte kousek naděje, že sen přežije! ♡ Protože #slowjewellery přeci musí přežít! Děkujeme za jakoukoli podporu ♡
+
+Webové stránky: [zualu.cz](https://www.zualu.cz/)
+
+Facebook: [zualu](https://www.facebook.com/Zualudesign)
 
 ### Haenke
 #### Navrhujeme instalace plné zeleně, prodáváme rostliny a z této činnosti částečně hradíme výzkum v oblasti léčivých rostlin i další vzdělávací a neziskové aktivity.
