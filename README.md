@@ -5,68 +5,8 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci 👇
 
-### Tato stránka Tato stránka vznikla z iniciativy PR agentury [ArtSPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
+### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
-
-### Sokino
-#### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Podpořit nás můžete nákupen na našem e-shopu, objednávkou předplatného pro své blízké. Za like nebo sdílení na sociálních sítích budeme vděční. Sleva 20% s kódem: 20NAVSE. Doprava ZDARMA od nákupu nad 1200 Kč.
-
-Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
-
-Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/(sokinoponozky)[https://www.facebook.com/sokinoponozky/]
-
-### Dřevomalby
-#### Výstavy, kterých se můžete dotýkat, a které se dotknou i Vás! Snažím se, aby moje obrazy tvořené na dřevě (dřevomalby) nalezly cestu k lidem nejen v prostředí výstav, ale zůstávaly i v jejich domovech.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Na svých sociálních sítích a webových stránkách sdílím svá díla, fotografie z ateliéru a výstav, ze kterých mohou zájemci vybrat obraz, který je jim blízký. Je možná také zakázková výroba obrazů na míru nebo zakoupení poukazů. Kontaktujte mě na e-mailu, formuláři na webu nebo prostřednictvím sociálních sítí.
-
-Webové stránky: [tomaszaborec.cz](https://www.tomaszaborec.cz/)
-
-Instagram/Facebook: [tomas.zaborec](https://www.instagram.com/tomas.zaborec/)/(zaborec)[https://www.facebook.com/zaborec/]
-
-### ROE / Linda Retterová
-#### ROE je malé textilní studio Lindy Retterové zaměřující se na rozmanité tiskové techniky a výrobu limitovaných edic autorského oblečení a doplňků.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Za podporu Vám nabízím slevu 10% na všechny výrobky. Na eshopu použijte slevový kód: MALYNAKUPVELKAPOMOC, nebo si o slevu napište - objednávky přijmám také na roe@retterova.com. K dispozici mám také dárkové poukazy, jak na výrobky, tak na workshopy či košile na míru. Děkuji
-
-Webové stránky: [retterova.com](http://www.retterova.com)
-
-Instagram: [roe_retterova](https://www.instagram.com/roe_retterova)
-
-### OKKOFASHION
-#### Značka OK:KO fashion vznikla jako protipól konzumního způsobu nakupování, mottem kterého je: „co  nejvíce kusů oblečení za co nejlevnější cenu… Vše, z čeho „poskládáte“ svůj šatník. Limitované edice.
-#### Výše ztráty k 15. 4. 2020: 45 000
-
-Forma pomoci: K objednávce oblečeni přes 1000kč - sladěná rouška zdarma.
-
-Webové stránky: [okkofashion.cz](https://www.okkofashion.cz)
-
-Instagram/Facebook: [okko.fashion](https://www.instagram.com/okko.fashion/)/[OKKOFASHION.cz](https://www.facebook.com/OKKOFASHION.cz/)
-
-### Moment - Prospěšný second hand
-#### Ziskem z darovaného oblečení podporujeme pět neziskových organizací. Naším cílem je prospěšnost. Tvoříme komunitu pro udržitelné oblékání a zapojujeme Česko do pomoci neziskovkám.
-#### Výše ztráty k 15. 4. 2020: 1 500 000
-
-Forma pomoci: Můžete si koupit online voucher na nákup oblečení, ke kterému jako dárek dáváme 30% hodnoty zdarma. Nebo si můžete koupit krásné módní kousky na našem pražském instagramu. Oblečení je možné vyzvednout v pražské prodejně ve výdejním okénku.
-
-Webové stránky: [momentvkarantene.cz](http://www.momentvkarantene.cz/)
-
-Instagram/Facebook: [moment.praha](https://www.instagram.com/moment.praha/)/[momentprahaops](https://www.facebook.com/momentprahaops)
-
-### TEABAG
-#### Designové kabelky a batohy z čalounického odpadu. V TEABAGu se snoubí skvělá myšlenka s krásným designem. Každý kus je vyrobený na míru zbytkovému materiálu tak, aby se minimalizoval odpad. Omezené množství materiálu dává jedinečnost a originalitu každému kusu.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčísleno
-
-Forma pomoci: Nákup výrobků nebo dárkových poukazů TEABAG prostřednictvím obchodu na FB. Po domluvě je možná zakázková výroba i jiných barevných kombinací. Ke každé objednávce na FB je až do skončení karanténních opatření rouška TEABAG a doprava zdarma.
-
-Webové stránky: [teabag.cz](http://www.teabag.cz/)
-
-Instagram/Facebook: [teabag.cz](https://www.instagram.com/teabag.cz)/[teabag.cz](https://www.facebook.com/pg/teabag.cz/shop/)
 
 ### MontMat
 #### Za značkou MontMat stojí dílna Dany Crlíkové, která svoji vášeň pro kůži a kožedělné výrobky přenáší do ruční výroby elegantních kožených kabelek, tašek a kožených módních doplňků.
@@ -138,7 +78,7 @@ Webové stránky: [benewood.cz](https://www.benewood.cz/)
 Instagram/Facebook: [bene.wood](https://www.instagram.com/bene.wood/)/[benewoodbene](http://www.facebook.com/benewoodbene)
 
 ### Ether
-#### Je české autorské studio založené designérkou Evou Vontorovou. Značka se zabývá výrobou a prodejem převážně dámských kožených doplňků jako jsou kabelky, batohy a pásky, ale i RTW kolekce, tedy oděvů na běžné denní nošení. Značka Ether je charakteristická minimalistickým designem s důrazem na nadčasovost a výběr velmi kvalitních materiálů jako je kůže, vlna či hedvábí. Veškerá výroba doplňků i oděvů probíhá na území České republiky a podporuje tak lokální výrobu.
+#### Je české autorské studio založené designérkou Evou Vontorovou. Značka se zabývá výrobou a prodejem převážně dámských kožených doplňků jako jsou kabelky, batohy a pásky, ale i RTW kolekce, tedy oděvů na běžné denní nošení. Značka Ether je charakteristická minimalistickým designem s důrazem na nadčasovost a výběr velmi kvalitních materiálů jako je kůže, vlna či hedvábí. Výhradně českou výrobou podporuje lokální řemeslnou produkci.
 #### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Pomoci nám můžete nákupem nové kolekce, poukázky nebo oděvů a doplňků přes instagram nebo email. Moc si Vaší pomoci vážíme! Děkujeme a přejeme hodně zdraví za celý Ether team.
@@ -267,7 +207,7 @@ Forma pomoci: Pomoci nám můžete zakoupením sypaného čaje. Pokud si jej neb
 Webové stránky: [hakuho.cz](https://www.hakuho.cz/eshop)
 
 ### Balkanova 
-#### Dovoz a prodej tkaných vlněných dek, koberců, ručně tkaných přehozů, kilimů, látek a jiných doplňků s původem na Balkáně, konkrétně v Bulharsku a Řecku (např. bulharská vína, přírodní kosmetika, apod.). Společnými rysy našich výrobků jsou přírodní materiály a suroviny, šetrný způsob výroby a velký podíl tradiční ruční práce. 
+#### Dovoz a prodej tkaných vlněných dek, koberců, přehozů, kilimů, látek a jiných doplňků s původem na Balkáně, konkrétně v Bulharsku a Řecku (např. bulharská vína, přírodní kosmetika, apod.). Společnými rysy výrobků jsou přírodní materiály a suroviny, šetrný způsob výroby a velký podíl ruční práce. 
 #### Výše ztráty k 6. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Každý zákazník, který do poznámky objednávky napíše heslo malynakupvelkapomoc dostane podle hodnoty objednávky dárek od nás, např. lahev červeného bulharského vína, balení naší přírodní kosmetiky, vlněné ponožky, případně něco dalšího dle individuální domluvy. Na stránce je i oddíl se zbožím, které je momentálně v akci. Individuální sleva možná!
@@ -467,7 +407,7 @@ Webové stránky: [vazarna.cz](https://www.vazarna.cz)
 Instagram/Facebook: [vazarna](https://www.instagram.com/vazarna/)/[vazarna](https://www.facebook.com/vazarna/)
 
 ### Rebelion ateliér
-#### V Rebelion ateliéru pořádáme kurzy šití pro zájemce, kteří by rádi pronikli do tajů tohoto řemesla. Přece jen má šití v naší republice velkou historii. V nabídce máme hned několik typů kurzů. Všem našim účastníkům se věnují školení lektoři, kteří mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se věnují šití s láskou. Zakládáme si na tom, aby se u nás účastíci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
+#### Pořádáme kurzy šití pro ty, kteří by rádi pronikli do tajů tohoto řemesla. V nabídce máme hned několik typů kurzů. Školení lektoři mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se mu věnují s láskou. Zakládáme si na tom, aby se u nás účastníci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
 #### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Jelikož jsme zastoupeni ve 4 městech (Praha, Brno, Olomouc, Plzeň), nenáročenější je pro nás udržet nájmy ateliérů a naše lektory. Abychom to vše zvládli, připravili jsme si merch - plátěnou tašku a triko s naším novým logem, které ušijí naši lektoři. Za svou práci dostanou zaplaceno a zároveň částí výdělku pokryjeme naše výdaje. Také jsme si připravili poukazy na kurzy šití, kdy si zájemce může poukaz zakoupit a poté jej kdykoliv během 1 roku uplatnit na náš kurz. V nabídce nechybí ani předplatné, kdy bude zájemci, po dobu 5 měsíců, přicházet měsíčně jeden balíček s návodem na ušití produktu.
@@ -497,7 +437,7 @@ Webové stránky: [chutmoravy.cz](http://www.chutmoravy.cz)
 Facebook/Instagram: [chutmoravy](https://www.facebook.com/chutmoravy/)/[chut_moravy](https://www.instagram.com/chut_moravy/)
 
 ### Kokedamy.cz
-#### Vyrábíme a prodáváme kokedamy - rostliny v mechové kouli, které se vám můžou zavěšené pohupovat po bytě. Kokedamy pochází z Japonska a jedná se o moderní trend v pěstování rostlin. Naše výrobky jsou vyráběny ručně, s láskou k přírodě. Kokedamy nabízíme na talířku, závěsné a levitující, které jinde nekoupíte. Budeme rádi za návštěvu našeho e-shopu.
+#### Vyrábíme a prodáváme kokedamy - rostliny v mechové kouli, které se vám můžou zavěšené pohupovat po bytě. Pochází z Japonska a jedná se o moderní trend v pěstování rostlin. Jsou vyráběny ručně, s láskou k přírodě. Kokedamy nabízíme na talířku, závěsné a levitující, které jinde nekoupíte. 
 #### Výše ztráty k 1. 4. 2020: přibližně 120 000
 
 Forma pomoci: Každá objednávka učiněná přes náš internetový obchod nám moc pomůže a věříme, že kokedama udělá velkou radost i vám nebo obdorovanému. Po Praze nabízíme vlastní rozvoz, odesílání poštou bude obnoveno v řádu dnů - jakmile se trošku oteplí, aby se rostlinky cestou nenachladily. Můžete nám pomoct i sdílením na sociálních sítích. Děkujeme za podporu a přejeme co nejvíce zdraví a dobré nálady.
@@ -517,7 +457,7 @@ Webové stránky: [za5dvanact.cz](https://za5dvanact.cz)
 Instagram: [za5dvanact](https://www.instagram.com/za5dvanact/)
 
 ### Renáta Jančo Design
-#### Vytvářím jednoduchý, funkční, módní design s absencí zbytečných ozdob, ukazuji krásu a sílu jednoduchosti i elegance neformálního stylu. Přináším tak dávku čerstvého vzduchu do svých návrhů a čisté linie s jemnými detaily, které jsou obvykle spojeny do monochromatických outfitů. Chci, aby lidé prostřednictvím mé tvorby získali zdravé sebevědomí a tím vyšší dávku denního štěstí. Svou tvorbu vyrábím výhradně v České republice, na mé rodné Moravě a to pouze z kvalitních materiálů.
+#### Vytvářím jednoduchý, funkční, módní design s absencí zbytečných ozdob, ukazuji krásu a sílu jednoduchosti i elegance neformálního stylu. Přináším tak dávku čerstvého vzduchu do svých návrhů a čisté linie s jemnými detaily, které jsou obvykle spojeny do monochromatických outfitů. Chci, aby lidé prostřednictvím mé tvorby získali zdravé sebevědomí a tím vyšší dávku denního štěstí. Vyrábím výhradně v ČR, na mé rodné Moravě, a pouze z kvalitních materiálů.
 #### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
 
 Forma pomoci: Vlastnoručně našito přes 500 kusů látkových roušek a zdarma předáno potřebným (seniorům, zdravotníkům, rodinám) ve městě Olomouc. Každý nákup mi pomůže získat finanční prostředky k zajištění dalších materiálů, galanterie a provozních nákladů na rozvoz pro další vlnu šití. Nabízím 10% sleva online prodej + poštovné přes Zásilkovnu zdarma.
@@ -597,7 +537,7 @@ Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
 Instagram/Facebook: [mama_coffee](https://www.instagram.com/mama_coffee)/[mamacoffee](https://www.facebook.com/mamacoffee/)
 
 ### Stehlík design
-#### Jsme manželé Alice a Petr a v roce 2015 jsme založili rodinnou porcelánovou dílnu. Na plný úvazek se věnujeme výrobě porcelánových šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů s designem, které jsou nyní zavřené a díky vládním nařízením, jsme také přišli o zakázky, které se nyní nemohou realizovat. Jediný příjem, který momentálně pokrývá naše výdaje je rodičovský příspěvek, který pobíráme na naši dvouletou dceru a e-shop.  Každý týden teď na e-shop přidáváme nové produkty, starší i nové kolekce aby naši zákazníci měli z čeho vybírat. Během dubna chystáme novou kolekci broží z barevného porcelánu. V dílně se snažíme nezastavovat a stále vyrábět a pokud to půjde rádi bychom opět vystavovali na Designbloku 2020 s naší experimentální tvorbou.
+#### Jsme manželé Alice a Petr a v roce 2015 jsme založili porcelánovou dílnu. Věnujeme se výrobě šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů, které jsou nyní zavřené, a přišli jsme také o plánované zakázky. Každý týden na e-shop přidáváme nové produkty. Nyní chystáme kolekci broží z barevného porcelánu. V dílně se snažíme nezastavovat a, pokud to půjde, rádi bychom opět vystavovali na Designbloku 2020 s naší experimentální tvorbou.
 #### Výše ztráty k 31. 3. 2020: 35 000
 
 Forma pomoci: Na e-shopu nově nabízíme dopravu zdarma na všechny objednávky a máme připravené dárkové poukazy už od 250 Kč. Každá objednávka nám pomůže zajistit nejen chod naší dílny ale i naší domácnosti. Za každý i malý nákup budeme vděční a budeme se Vám moci odvděčit porcelánovou radostí i v budoucnu.
@@ -678,7 +618,7 @@ Webové stránky: [bistrotekaatelier.cz](https://www.bistrotekaatelier.cz/)
 Instagram/Facebook: [bistroteka.atelier](https://www.instagram.com/bistroteka.atelier)/[bistroteka.atelier](https://m.facebook.com/Bistroteka-Atelier-103211637820469/)
 
 ### Šárka Strnadová
-#### Značku pod svým jménem jsem založila před asi 3 lety. Tvořím pod ní dámské ready-to-wear kolekce. Minimalistické kousky na běžné nošení i na večer a vždy z kvalitních materiálů. Šiji převážně z bavlny, vlny a hedvábí. Záleží mi na pohodlí mých klientek, ale zároveň chci aby se v mých kouscích cítily žensky, elegantně i sexy. Kolekce tvořím dvakrát ročně, ale mimo ně tvořím i na zakázku. Zakázky dělám ráda i pro muže. Ženy si objednají převážně svatební a plesové šaty, ale často i něco na běžné nošení. Kromě navrhování se věnuji i stylingu. Lze u mě objednat Refreš šatníku nebo Nákupy se stylistkou. Veškeré informace k tomu najdete na mém webu.
+#### Značku pod svým jménem jsem založila před asi 3 lety. Dvakrát ročně vytvářím dámské ready-to-wear kolekce. Minimalistické kousky na běžné nošení i na večer šiji z kvalitních materiálů, převážně z bavlny, vlny a hedvábí. Záleží mi na pohodlí mých klientek, ale zároveň chci, aby se v oděvech cítily žensky, elegantně i sexy. Věnuji se také dámské a pánské zakázkové výrobě. Ženy si objednávají převážně svatební a plesové šaty, ale i modely na běžné nošení. Lze si u mě objednat stylingové služby jako Refreš šatníku nebo Nákupy se stylistkou. Více informací najdete na mém webu.
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: K jakékoliv objednávce nyní posílám roušky jako dárek. Pokud si objednáte zboží nebo poukaz přímo u mě, dostanete poštovné zdarma. 
@@ -749,7 +689,7 @@ Webové stránky: [jannami.cz](http://www.jannami.cz)
 Facebook: [jannamicz](https://www.facebook.com/jannamicz/)
 
 ### Best4Run
-#### Jsme malá běžecká speciálka v Přerově, kterou před pěti lety otevřeli manželé se třemi dětmi. . Každým dnem, kterým máme zavřeno, se blížíme k zavření celé prodejny. Peníze ve skladových zásobách nám leží a fakturám se blíží splatnost. Máme i e-shop, ale nejvíc jsme si vždycky zakládali na tom, že tu jsme pro běžce, že s nimi vybíráme klidně i hodinu, že je necháme všechno v klidu vyzkoušet a pokud pro ně nemáme ty pravé boty, raději jim neprodáme žádné než takové, které by jim neseděly. 
+#### Jsme malá běžecká speciálka v Přerově, kterou před pěti lety otevřeli manželé se třemi dětmi. Každým dnem, kterým máme zavřeno, se blížíme k možnému ukončení provozu. Nejvíce jsme si vždy zakládali na tom, že tu jsme pro běžce, vybíráme s nimi, necháme je všechno v klidu vyzkoušet a pokud společně nenajdeme ty pravé boty, raději jim neprodáme žádné než takové, které by jim neseděly. 
 #### Výše ztráty k 31. 3. 2020: 450000
 
 Forma pomoci: Nákupem na e-shopu. Dopravu nad 500 Kč jsme dali zdarma, k botám od Inov-8 dáváme dárek. Každý nákup nám pomůže dostat se přes tohle období a vrátit se k tomu, co máme nejraději. Být tu pro vás a starat se o to, abyste běhali správně. Jsme k dispozici na chatu, FB i mailu a moc rádi pomůžeme s výběrem. 
@@ -769,7 +709,7 @@ Webové stránky: [tyformy.cz](http://tyformy.cz)
 Instagram: [tyformy](https://www.instagram.com/tyformy/ )
 
 ### Peelo
-#### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže hravo nahradiť plastovú fóliu v každej domácnosti. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce aspoň malým krokom prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k našej prírode.
+#### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže nahradiť plastovú fóliu. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k prírode.
 #### Výše ztráty k 30. 3. 2020: 2000
 
 Forma pomoci: Až do odvolania si v našom e-shope môžete kúpiť akýkoľvek produkt s poštovným ZADARMO do celej SR a ČR a s kódom PRVEPEELO môžete navyše získať zľavu 10% na prvý nákup. Ak chcete v týchto dňoch obdarovať niekoho, kto má sviatok alebo len tak potešiť niekoho praktickým a ekologickým darčekom, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
@@ -811,7 +751,7 @@ Webové stránky: [raprap.cz](https://www.raprap.cz/)
 Instagram: [raponetwo](https://www.instagram.com/raponetwo/)
 
 ### Linky Fashion
-#### V této době dobrovolně šiji roušky a zadarmo je daruji do  zdravotnických zařízení a domovů důchodců. Po dobu 2 týdnů, co jsem se připojila ke skupince vietnamských švadlenek jsme v rámci mé skupinky darovaly přes 2000 ks roušek, ale bohužel jsem neměla žádný příjem, protože jsem se rozhodla pomáhat potřebným a nyní potřebuji pomoc i já. Prodávám dámské stylové oblečení, pro které jsem sama osobně jela vybírat do zahraničí, abych se ujistila o kvalitě produktu. Oblečení je stylové, vhodné pro běžné i formální nošení. Cílem je, aby se každá žena cítila sebevědomě a pohodlně v tom, co nosí.  Moc mi pomůžete, když podpoříte můj malý e-shop, abych si nemusela hledat práci, protože to byl vždy můj sen mít malý obchůdek s oblečením. 
+#### V této době šiji roušky a zadarmo je daruji do zdravotnických zařízení a domovů důchodců. Za dobu 2 týdnů jsme jich se skupinkou vietnamských švadlenek darovaly přes 2000 ks. Nyní potřebuji pomoc i já. Prodávám dámské stylové oblečení, které jsem osobně vybírala v zahraničí a ujistila se o jeho kvalitě. Je vhodné pro běžné i formální nošení. Cílem je, aby se každá žena cítila sebevědomě a pohodlně v tom, co nosí. Moc mi pomůžete, když podpoříte můj e-shop, abych si nemusela hledat jinou práci, protože obchůdek s oblečením byl vždy můj sen.
 #### Výše ztráty k 30. 3. 2020: 30000
 
 Forma pomoci: Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
@@ -824,7 +764,7 @@ Webové stránky: [linkyfashion.eu](https://www.linkyfashion.eu)
 Facebook/Instagram: [Linky Fashion]( https://www.facebook.com/LinkyFashion/)/[linkyfashion](https://www.instagram.com/linkyfashion/)
 
 ### Live Sweaters
-#### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Aktuálnější v tomto období budou asi basic trika z merino vlny a funkční merino ponožky s protiklíšťatovou úpravou (Jestli máte možnost možnost vyrazit třeba na zahradu ).  Díky benefitům merino vlny naše produkty vydrží dlouho jako nové a nemusíte je tak často prát – Jsou „care-free“. Vše vyrábíme v Čechách.
+#### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Pro toto období doporučujeme basic trika z merino vlny a funkční merino ponožky s protiklíšťovou úpravou (jestli máte možnost vyrazit třeba na zahradu). Díky benefitům merino vlny naše produkty dlouho vydrží a nemusíte je tak často prát. Vše vyrábíme v Čechách.
 #### Výše ztráty k 30. 3. 2020: 30000+
 
 Forma pomoci: Budu moc rád, když nás podpoříte a koupíte si nějaký náš produkt nebo voucher v hodnotě 500 – 5000 Kč s roční platností. Navíc máme pro všechny DOPRAVU ZDARMA a ještě slevu 10% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
@@ -942,7 +882,7 @@ Webové stránky: [kralovskesvatby.cz](https://www.kralovskesvatby.cz/)
 Instagram/Facebook: [kralovskesvatby](https://www.instagram.com/kralovskesvatby/)/[kralovskesvatby](https://www.facebook.com/kralovskesvatby/)
 
 ### Ollies
-#### Ollies je síť cukráren, která na českém trhu působí už 20 let. Mimo Ostravu, Olomouc otevřela loni svou první pobočku v Praze na Vinohradech. Vize Ollies je originalita, lepší chuť a především kvalita jejich výrobků. Základy jejich receptur pochází z francouzské cukrařiny a do Francie se právě jezdí pravidelně vzdělávat a inspirovat. Vizí Ollies je stát se nejlepší cukrárnou v Česku. 
+#### Ollies je síť cukráren, která v Česku působí už 20 let. Mimo Ostravu a Olomouc otevřela loni svou první pobočku v Praze na Vinohradech. Vize Ollies je originalita, lepší chuť a především kvalita jejich výrobků. Základy jejich receptur pochází z Francie, kam se jezdí pravidelně vzdělávat a inspirovat. Vizí Ollies je stát se nejlepší cukrárnou v Česku.
 #### Výše ztráty k 29. 3. 2020: 3 000 000
 
 Forma pomoci: Bojujeme o stošest, naše produkty si stále můžete zakoupit v Praze, Olomouci a Ostravě z našich poboček přes výdejové okénko, v Praze také fungujeme na WOLT, UBEReats, nesnězeno a rohlik.cz, kde vám všechny naše produkty dovezeme až domů. V Ostravě máme dokonce vlastní rozvoz zdarma. Od zítra budeme nově prodávat naše máslové croissanty jako mražený polotovar na domů nebo on-line kurz makronek, který pro Vás připravíme nejpozději od 1.4.
@@ -1141,7 +1081,7 @@ Webové stránky: [kristynamalovana.com](https://www.kristynamalovana.com/)
 Facebook: [Kristýna Malovaná jewellery](https://www.facebook.com/Krist%C3%BDna-Malovan%C3%A1-jewellery-1530537500581713/)
 
 ### želé jewellery
-#### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a svojej dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Pred mesiacom sa nám konečne po 3 rokoch tvorby podarilo otvoriť zdieľaný ateliér, ktorý sme museli však ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
+#### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Po 3 rokoch tvorby sa nám podarilo otvoriť zdieľaný ateliér, ktorý sme museli ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
 #### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
 
 Forma pomoci: Budeme radi za akúkoľvek kúpu šperku, ktorý Vám alebo vaším blízkym urobí radosť. Môžte si vybrať z konkrétnej ponuky na webe, alebo Vám s radosťou vyrobíme originálny kúsok na mieru podľa vašich predstáv. Času máme teraz dosť. :) Samozrejme počítajte s poštovným zdarma.
@@ -1374,7 +1314,7 @@ Instagram: [prasklo](www.instagram.com/prasklo)
 #### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
 #### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
 
-Pomoci můžete nákupem oděvu, který máme v nabídce. Pokud si nevyberete můžeme se domluvit na zakázkové výrobě nebo voucheru. Bohužel nemáme ještě e-shop, ale ráda pošlu katalog s produkty. Kontaktujte mne na hello@terezarosaliekladosova.cz na instagramu nebo na facebooku. Jako poděkování nabízím poštovné zdarma. Děkuji Vám za jakoukoliv podporu i kávu do ateliéru oceníme :)))
+Pomoci můžete nákupem oděvu. Pokud si nevyberete z nabídky můžeme se domluvit na zakázkové výrobě nebo voucheru. Zatím nemám e-shop, ale ráda vám pošlu katalog. Kontaktujte mne na hello@terezarosaliekladosova.cz, Instagramu nebo Facebooku. Jako poděkování nabízím poštovné zdarma. Děkuji Vám za jakoukoliv podporu, i kávu do ateliéru oceníme :)))
 
 Webové stránky: [terezarosaliekladosova.cz](http://terezarosaliekladosova.cz/)
 
@@ -1401,7 +1341,7 @@ Webové stránky: [katerinasoukupova.cz](http://katerinasoukupova.cz)
 Instagram/Facebook: [k.soukupova_textileart](https://www.instagram.com/k.soukupova_textileart/)/[kstextileart](https://www.facebook.com/kstextileart/)
 
 ### Lucie Trnková Glamstones
-#### Jsem česká designérka, vystudovala jsem uměleckou školu. Vyrábím především šperky a doplňky z drahých kamenů, perel, ze stříbra, zlata a z kůže. Momentálně jsem vyměnila milující šperky za šití roušek, zkrátka věci zbytné za nezbytné. Šiji zdarma do nemocnic, porodnic, pro domovy seniorů a všem, kteří nyní potřebují. Moje tvorba se prodává v Bibloo concept Store a dalších obchůdcích, které jsou samozřejmě nyní uzavřeny. Vyrábím také krásné šperky na zakázku, náramky, prsteny, náušnice či pásky a s možností vygravírování osobního monogramu. Používám kvalitní a přírodní materiál, který zpracovávám do posledního kousíčku. Vznikají tak občas jedinečné kožené magnetky či třeba spony na šátky. Vyrábím v České republice a všechny designy mám patentované. 
+#### Jsem designérka s uměleckým vzděláním. Vyrábím šperky a doplňky z drahých kamenů, perel, stříbra, zlata a kůže. Momentálně jsem vyměnila šperky za šití roušek, které daruji do nemocnic, domovům seniorů apod. Bibloo concept Store a další obchody, kde nabízím svou tvorbu, jsou nyní uzavřeny. Tvořím také na zakázku s možností vygravírování monogramu. Používám kvalitní a přírodní materiály, které do detailu zpracovávám, mimo jiné i v jedinečné kožené magnetky či spony na šátky. Vyrábím v ČR a všechny designy mám patentované. 
 #### Výše ztráty k 26. 3. 2020: více než 50 000
 
 Forma pomoci: Kontaktujte mne prosím přes Instagram. Děkuji. Ráda pro Vás vyrobím okouzlující šperk dle vašeho přání. Jsem přece glamstones / kouzelné/okouzlující kamene :-) A jako dárek váš osobní monogram na vašem novém šperku !!!
