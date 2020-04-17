@@ -8,6 +8,66 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Sokino
+#### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
+#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Podpořit nás můžete nákupen na našem e-shopu, objednávkou předplatného pro své blízké. Za like nebo sdílení na sociálních sítích budeme vděční. Sleva 20% s kódem: 20NAVSE. Doprava ZDARMA od nákupu nad 1200 Kč.
+
+Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
+
+Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/(sokinoponozky)[https://www.facebook.com/sokinoponozky/]
+
+### Dřevomalby
+#### Výstavy, kterých se můžete dotýkat, a které se dotknou i Vás! Snažím se, aby moje obrazy tvořené na dřevě (dřevomalby) nalezly cestu k lidem nejen v prostředí výstav, ale zůstávaly i v jejich domovech.
+#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Na svých sociálních sítích a webových stránkách sdílím svá díla, fotografie z ateliéru a výstav, ze kterých mohou zájemci vybrat obraz, který je jim blízký. Je možná také zakázková výroba obrazů na míru nebo zakoupení poukazů. Kontaktujte mě na e-mailu, formuláři na webu nebo prostřednictvím sociálních sítí.
+
+Webové stránky: [tomaszaborec.cz](https://www.tomaszaborec.cz/)
+
+Instagram/Facebook: [tomas.zaborec](https://www.instagram.com/tomas.zaborec/)/(zaborec)[https://www.facebook.com/zaborec/]
+
+### ROE / Linda Retterová
+#### ROE je malé textilní studio Lindy Retterové zaměřující se na rozmanité tiskové techniky a výrobu limitovaných edic autorského oblečení a doplňků.
+#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Za podporu Vám nabízím slevu 10% na všechny výrobky. Na eshopu použijte slevový kód: MALYNAKUPVELKAPOMOC, nebo si o slevu napište - objednávky přijmám také na roe@retterova.com. K dispozici mám také dárkové poukazy, jak na výrobky, tak na workshopy či košile na míru. Děkuji
+
+Webové stránky: [retterova.com](http://www.retterova.com)
+
+Instagram: [roe_retterova](https://www.instagram.com/roe_retterova)
+
+### OKKOFASHION
+#### Značka OK:KO fashion vznikla jako protipól konzumního způsobu nakupování, mottem kterého je: „co  nejvíce kusů oblečení za co nejlevnější cenu… Vše, z čeho „poskládáte“ svůj šatník. Limitované edice.
+#### Výše ztráty k 15. 4. 2020: 45 000
+
+Forma pomoci: K objednávce oblečeni přes 1000kč - sladěná rouška zdarma.
+
+Webové stránky: [okkofashion.cz](https://www.okkofashion.cz)
+
+Instagram/Facebook: [okko.fashion](https://www.instagram.com/okko.fashion/)/[OKKOFASHION.cz](https://www.facebook.com/OKKOFASHION.cz/)
+
+### Moment - Prospěšný second hand
+#### Ziskem z darovaného oblečení podporujeme pět neziskových organizací. Naším cílem je prospěšnost. Tvoříme komunitu pro udržitelné oblékání a zapojujeme Česko do pomoci neziskovkám.
+#### Výše ztráty k 15. 4. 2020: 1 500 000
+
+Forma pomoci: Můžete si koupit online voucher na nákup oblečení, ke kterému jako dárek dáváme 30% hodnoty zdarma. Nebo si můžete koupit krásné módní kousky na našem pražském instagramu. Oblečení je možné vyzvednout v pražské prodejně ve výdejním okénku.
+
+Webové stránky: [momentvkarantene.cz](http://www.momentvkarantene.cz/)
+
+Instagram/Facebook: [moment.praha](https://www.instagram.com/moment.praha/)/[momentprahaops](https://www.facebook.com/momentprahaops)
+
+### TEABAG
+#### Designové kabelky a batohy z čalounického odpadu. V TEABAGu se snoubí skvělá myšlenka s krásným designem. Každý kus je vyrobený na míru zbytkovému materiálu tak, aby se minimalizoval odpad. Omezené množství materiálu dává jedinečnost a originalitu každému kusu.
+#### Výše ztráty k 15. 4. 2020: zatím nevyčísleno
+
+Forma pomoci: Nákup výrobků nebo dárkových poukazů TEABAG prostřednictvím obchodu na FB. Po domluvě je možná zakázková výroba i jiných barevných kombinací. Ke každé objednávce na FB je až do skončení karanténních opatření rouška TEABAG a doprava zdarma.
+
+Webové stránky: [teabag.cz](http://www.teabag.cz/)
+
+Instagram/Facebook: [teabag.cz](https://www.instagram.com/teabag.cz)/[teabag.cz](https://www.facebook.com/pg/teabag.cz/shop/)
+
 ### MontMat
 #### Za značkou MontMat stojí dílna Dany Crlíkové, která svoji vášeň pro kůži a kožedělné výrobky přenáší do ruční výroby elegantních kožených kabelek, tašek a kožených módních doplňků.
 #### Výše ztráty k 15. 4. 2020: 60000
