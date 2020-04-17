@@ -208,6 +208,16 @@ Webové stránky: [panoply.cz](https://panoply.cz/)
 
 Instagram/Facebook: [Panoply.cz](https://www.instagram.com/Panoply.cz)/[panoply.cz](www.facebook.com/Panoply.cz)
 
+### Papírna Stationery s.r.o.
+#### Vývoj, výroba a prodej papírenského sortimentu, firemních merkantilií a školních pomůcek.
+#### Výše ztráty k 3. 4. 2020: zatím nevyčísleno
+
+Forma pomoci: Malý nákup. Velká pomoc. Velký nákup. Větší pomoc. Žádný nákup, pomožte jinde. Nezbytnosti totiž nevedeme. Duben ještě v tom budem aka 19% z každého vašeho aprílového nákupu pošleme organizaci https://food-not-bombs.cz/ Upřímně děkujeme každému z vás, kdo se zajímá, stejně tak jako zakladatelům této iniciativy. Za celý tým Papírny zdraví Michal a Jaromír
+
+Webové stránky: [papirna.cz](https://www.papirna.cz)
+
+Instagram/Facebook: [papirna](https://www.instagram.com/papirna/)[papirna](https://www.facebook.com/papirna.cz)
+
 ### Poketo nakladatelství / Martina Hamouzová
 #### Jsme tři matky, které vytváříme to, co nám chybí: miniknihy, vzdělávací materiály zejména k učení české abecedy a kreativní sety pro děti. Podporujeme učení hrou a kreativitu. Náš styl je esteticky jednoduchý, srozumitelný pro děti. Vyrábíme v Česku.  
 #### Výše ztráty k 3. 4. 2020: Desetitisíce
