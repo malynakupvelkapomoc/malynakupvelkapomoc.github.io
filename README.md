@@ -1,4 +1,4 @@
-*UPDATE 14. 4. 2020**  
+*UPDATE 17. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -427,6 +427,14 @@ Forma pomoci: Budu moc ráda, když se podíváte ke mně na e-shop a potěšít
 Webové stránky: [dandylion.cz](https://www.dandylion.cz/)
 
 Instagram/Facebook: [dandylion.cz](https://www.instagram.com/dandylion.cz)/[dandylion.cz](https://www.facebook.com/dandylion.cz/)
+
+### KARTONA
+#### Jsme tradiční zpracovatel strojní a vlnité lepenky, zajišťuje kompletní služby v oblasti výroby a dodávek: skupinových, přepravních a spotřebitelských obalů kancelářských i domácích potřeb a doplňků. Zaměřujeme se primárně na výrobu lepené, šité či skládané kartonáže a obalů s tradicí, která započala již v 80-tých letech min. století.
+#### Výše ztráty k 31. 3. 2020: 170000
+
+Forma pomoci: Jste nucení být zavřeni doma či v uzavřené firmě? Ukliďte si firmu či obydlí, odreagujete se od tlaku okolí a ještě si zvelebíte prostředí! Poté tedy potřebujete naše klopové a jiné krabice...:) Minimální objednávka je 10 kusů.
+
+Webové stránky: [kartona.cz](http://www.kartona.cz/)
 
 ### Care & Cake
 #### Zdravé dezerty bez lepku a cukru tvořené s láskou z čistě rostlinných surovin
