@@ -262,6 +262,16 @@ Webové stránky: [parazit.cz](http://www.parazit.cz/)
 
 Facebook: [FashionshopParazit](https://www.facebook.com/FashionshopParazit/)
 
+### JustMonkeys
+#### Škola scénického umění 
+#### Výše ztráty k 3. 4. 2020: desetitisíce 
+
+Forma pomoci: Vyzkoušej, co by Tě dříve možná ani nenapadlo! Kurz nebo workshop školy scénického umění JustMonkeys, pod příjemným a fundovaným vedením MgA. Venduly Ježkové, Ph.D.  
+Aktuálně vše realizujeme online (videokonference přes ZOOM). Jednorázové formáty, při kterých se potkáš s novými lidmi a bez roušek. Protáhneš se, uvolníš a ještě se naučíš lépe rozumět sobě. 
+Srdečně zveme na lekce: Nakaž se komunikací! nebo na Impro Mejdlo v Karanténě! a připravujeme další. Těšíme se na Tebe.
+
+Webové stránky: [justmonkeys.cz](http://justmonkeys.cz/)
+
 ### Woxkon
 #### Batohy Woxkon byly navrženy a pečlivě vyrobeny v České republice. U jejich zrodu stála láska k přírodě a městu, radost z tvoření, ale i úcta k lidské práci a respekt k naší planetě. Proto se snažíme neustále zlepšovat a hledat možnosti a spolupráce, které tyto myšlenky podporují. Cílem nebylo vyrobit jen další spotřební zboží, ale batoh, který vám vydrží léta. 
 #### Výše ztráty k 3. 4. 2020: desetitisíce 
@@ -476,6 +486,16 @@ Určitě má někdo z vašich blízkých v budoucích měsících narozeniny a j
 Webové stránky: [darkstore.cz](https://www.darkstore.cz/)
 
 Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_store)/[darkconceptstore](https://www.facebook.com/darkconceptstore/)
+
+### Rex Reklama
+#### Rodinná česká firma s více jak 30ti letou tradicí na trhu s výrobou světelných reklam, neonů, plastických písmen, vývěsních štítu, prezentačních stojanů, POP prezentačních systémů a dalšího.
+#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Naším zákazníkům nabízíme vizualizaci ZDARMA, pokud se rozhodnou pro světelné LED rámečky pro snadnou výměnu grafiky (vhodné například pro nutná sdělení jako omezení vstupu jen určitého počtu osob do prostor atd). Zákazníci nám mohou pomoci nákupem některého z našich produktů na našem e-shopu, či zakoupením poukazu pro pozdější použití.
+
+Webové stránky: [rex-reklama.cz](http://www.rex-reklama.cz/)
+
+Instagram: [Rex_reklama](https://www.instagram.com/Rex_reklama)
 
 ### mamacoffee
 #### V mamacoffee pražíme kávu, kterou vždy pečlivě vybíráme a nakupujeme za důstojných podmínek. Provozujeme několik kaváren a řemeslnou pekárnu. Dbáme na kvalitní suroviny a dodavatele.
@@ -841,6 +861,16 @@ Forma pomoci: Bojujeme o stošest, naše produkty si stále můžete zakoupit v 
 Webové stránky: [ollies.cz](https://www.ollies.cz)
 
 Instagram/Facebook: [ollies_cukrarna]( https://www.instagram.com/ollies_cukrarna/)/[olliescukrarna](https://www.facebook.com/olliescukrarna)
+
+### Marmis
+#### šiji dětské oblečení a jiné (tašky, pytlíky apod.)
+#### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Chystám novinku v sortimentu a slevovoou akci na duben.
+
+Webové stránky: [marmis.cz](https://www.marmis.cz)
+
+Facebook: [Marmis](https://www.facebook.com/MarmisHandmade/)
 
 ### MOOQ
 #### Výroba a prodej designového sportovního oblečení
