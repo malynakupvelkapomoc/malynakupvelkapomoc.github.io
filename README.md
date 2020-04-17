@@ -8,9 +8,20 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### MontMat
+#### Za značkou MontMat stojí dílna Dany Crlíkové, která svoji vášeň pro kůži a kožedělné výrobky přenáší do ruční výroby elegantních kožených kabelek, tašek a kožených módních doplňků.
+#### Výše ztráty k 15. 4. 2020: 60000
+
+Forma pomoci: Budu ráda, když moji tvorbu podpoříte nákupem koženého kousku na e-shopu nebo vám mohu ušít kabelku, peněženku dle vašich představ. Dárek ke každé objednávce je samozřejmostí. Další výhodné akce určitě sledujte na mém FB profilu.
+PROMĚŇTE SVŮJ SVĚT I MŮJ
+
+Webové stránky: [montmat.cz](http://montmat.cz)
+
+Instagram/Facebook: [montmatleather](https://www.instagram.com/montmatleather/)/[kabelky MontMat](https://facebook.com/kabelkyMontMat/)
+
 ### Baterkáreň
 #### Komplexné komunitno.obchodné centrum pre udržateľný život :) v aktuálnej situácii predaj čapovanej a sypaneh drogérie a čistiacich prostriedkov, ktoré lúbia prírodu.
-#### Výše ztráty k 14. 4. 2020: zatiaľ nevyčíslené
+#### Výše ztráty k 15. 4. 2020: zatiaľ nevyčíslené
 
 Forma pomoci: Baterkáreň prežije len vďaka nákupom drogérie a čistiacich prostriedkov z nášho eshopu. Tovar vyberaný s ohľadom na prírodu a lokálnosť balíme do dezinfikovaných nádob, prípadne sáčkov.  :)
 
