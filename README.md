@@ -8,6 +8,24 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Baterkáreň
+#### Komplexné komunitno.obchodné centrum pre udržateľný život :) v aktuálnej situácii predaj čapovanej a sypaneh drogérie a čistiacich prostriedkov, ktoré lúbia prírodu.
+#### Výše ztráty k 14. 4. 2020: zatiaľ nevyčíslené
+
+Forma pomoci: Baterkáreň prežije len vďaka nákupom drogérie a čistiacich prostriedkov z nášho eshopu. Tovar vyberaný s ohľadom na prírodu a lokálnosť balíme do dezinfikovaných nádob, prípadne sáčkov.  :)
+
+Webové stránky: [baterkaren.sk](https://baterkaren.sk)
+
+Instagram/Facebook: [Baterkaren](https://www.instagram.com/Baterkaren/)/[BaterkarenTrnava](https://facebook.com/BaterkarenTrnava/)
+
+### Sandra Kocmanová illustrations / Krumlover
+#### Jsem ilustrátorka a grafička, která vlastní malý obchůdek v centru Českého Krumlova a snaží se tak přivést na svět originální a doufaje vkusné dárky z našeho krásného města. K tomu dále nabízím originální blahopřání a další papírenské zboží vlastního designu i výroby.
+#### Výše ztráty k 14. 4. 2020: 30000
+
+Forma pomoci: Zdravím všechny úžasné podporovatele. Nabízím malovaná originální přání ke každé příležitosti a další papírenské zboží - vše můžete vidět na Facebookovém obchodu mé stránky. Ráda Vám také namaluji obrázek / přání na míru a dle vašich představ. Nic mě nepotěší Víc, než jakákoli vaše podpora. Ke každé objednávce přibalím malý dárek jako dík za Vaší podporu. Kontaktovat mě můžete nejlépe v soukromé zprávě :)
+
+Webové stránky: [skfactory.cz](https://www.skfactory.cz/)
+
 ### Neposer se
 #### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
 #### Výše ztráty k 14. 4. 2020: 50000+
