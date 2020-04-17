@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka navazuje na instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/) za cílem pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Neposer se
+#### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
+#### Výše ztráty k 14. 4. 2020: 50000+
+
+Forma pomoci: Budeme moc rádi, když nás podpoříte nákupem knihy, workshopu, konzultace anebo lekcí přízvuků AJ.  Máme pro všechny SLEVU 15% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
+
+Webové stránky: [neposerse.cz](https://neposerse.cz/)
+
+Instagram/Facebook: [neposerse](https://www.instagram.com/neposerse/)/[neposerse](https://facebook.com/neposers/)
+
 ### Remix kabelky
 #### Výroba kabeliek, batohov a rôznych doplnkov z pravej tradičnej MODROTLAČE zo slovenskej i českej dielne, ktorá je vyrábaná tradičným spôsobom.
 #### Výše ztráty k 13. 4. 2020: zatím nevyčíslena
