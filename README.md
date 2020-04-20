@@ -16,7 +16,7 @@ Forma pomoci: Pomoci můžete objednávkou z mého e-shopu. Při koupi jakýchko
 
 Webové stránky: [dzemarna.cz](https://www.dzemarna.cz)
 
-Instagram/Facebook: [dzemarna](https://www.instagram.com/dzemarna/)/(dzemarna)[https://www.facebook.com/dzemarna.cz/]
+Instagram/Facebook: [dzemarna](https://www.instagram.com/dzemarna/)/[dzemarna](https://www.facebook.com/dzemarna.cz/)
 
 ### Sokino
 #### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
@@ -26,7 +26,7 @@ Forma pomoci: Podpořit nás můžete nákupen na našem e-shopu, objednávkou p
 
 Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
 
-Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/(sokinoponozky)[https://www.facebook.com/sokinoponozky/]
+Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/[sokinoponozky](https://www.facebook.com/sokinoponozky/)
 
 ### Dřevomalby
 #### Výstavy, kterých se můžete dotýkat, a které se dotknou i Vás! Snažím se, aby moje obrazy tvořené na dřevě (dřevomalby) nalezly cestu k lidem nejen v prostředí výstav, ale zůstávaly i v jejich domovech.
@@ -36,7 +36,7 @@ Forma pomoci: Na svých sociálních sítích a webových stránkách sdílím s
 
 Webové stránky: [tomaszaborec.cz](https://www.tomaszaborec.cz/)
 
-Instagram/Facebook: [tomas.zaborec](https://www.instagram.com/tomas.zaborec/)/(zaborec)[https://www.facebook.com/zaborec/]
+Instagram/Facebook: [tomas.zaborec](https://www.instagram.com/tomas.zaborec/)/[zaborec](https://www.facebook.com/zaborec/)
 
 ### ROE / Linda Retterová
 #### ROE je malé textilní studio Lindy Retterové zaměřující se na rozmanité tiskové techniky a výrobu limitovaných edic autorského oblečení a doplňků.
