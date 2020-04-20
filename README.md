@@ -8,6 +8,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho t�
 ### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
+### Džemárna
+#### Džemy a rosoly z lokálních surovin, s minimem cukru a vysokým podílem ovoce. Na Kutnohorsku a Kolínsku sklízím i vařím, želíruji bez chemie. 
+#### Výše ztráty k 17. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Pomoci můžete objednávkou z mého e-shopu. Při koupi jakýchkoli 4 skleniček z e-shopu vám přibalím sladký dárek.
+
+Webové stránky: [dzemarna.cz](https://www.dzemarna.cz)
+
+Instagram/Facebook: [dzemarna](https://www.instagram.com/dzemarna/)/(dzemarna)[https://www.facebook.com/dzemarna.cz/]
+
 ### Sokino
 #### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
 #### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
