@@ -5,7 +5,7 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci 👇
 
-### Tato stránka vznikla z iniciativy PR agentury ArtSPeak (https://artspeakpr.com/). Navazuje na její instagramovou výzvu
+### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu
 [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
@@ -19,7 +19,7 @@ Forma pomoci: Podpořit nás můžete nákupen na našem e-shopu, objednávkou p
 
 Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
 
-Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/(sokinoponozky)[https://www.facebook.com/sokinoponozky/]
+Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/[sokinoponozky](https://www.facebook.com/sokinoponozky/)
 
 ### ROE / Linda Retterová
 #### ROE je malé textilní studio Lindy Retterové zaměřující se na rozmanité tiskové techniky a výrobu limitovaných edic autorského oblečení a doplňků.
