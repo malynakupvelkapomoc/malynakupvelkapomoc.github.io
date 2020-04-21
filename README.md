@@ -5,8 +5,7 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Vytvořili jsme proto tento online seznam malých podniků, kde najdete informace o způsobech, kterými jim můžete pomoci 👇
 
-### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu
-[#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
+### Tato stránka vznikla z iniciativy PR agentury [ArtsPeak](https://artspeakpr.com/). Navazuje na její instagramovou výzvu [#malynakupvelkapomoc](https://www.instagram.com/explore/tags/malynakupvelkapomoc/) [#shopsmallhelpbig](https://www.instagram.com/explore/tags/shopsmallhelpbig/). Má za cíl pomoci s výběrem malých firem (tedy těch, které nezaměstnávají více než 50 osob a jejichž obrat nepřesahuje 10 mil EUR), značek, výrobců, obchodníků, poskytovatelů služeb a gastronomických provozů s možností prodeje online a doručení domů.
 👇
 
 ## Móda a doplňky
