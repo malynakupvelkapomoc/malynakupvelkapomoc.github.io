@@ -1077,6 +1077,16 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### Wheelock design shop 
+#### Je mladý obchod na Letné, kde nabízíme zajímavé a neotřelé, české designérské značky i značky ze zahraničí. Naším cílem je ukázat, že krásné a kvalitní doplňky si může dovolit každý. Nabízíme doplňky do domacnosti, jako třeba porcelán, dřevené doplňky, kuchyňský textil, a také šperky a hodinky, hračky pro děti, doplňky pro může, kožené batohy a barefoot mokasíny. Vybíráme věci vyrobené z kvalitních přírodních materiálů, organických bio ingredientů, vyrobené ručně a s láskou. 
+#### Výše ztráty k 22. 4. 2020: zatím nevyčísleno
+
+Daná situace nás dovedla k procesu likvidace, který bude následovat definitivní rozloučení se s naší prodejnou. Pomůžete nám koupí výrobků, jež nabízíme se slevou 50 až 70% na našem Facebooku. Neztratily nic na své kráse ani hodnotě a víme, že dokáží vykouzlit mnoho radosti. Vyzvednout je můžete osobně ve Wheelocku po předchozí domluvě, nebo vám je rádi doručíme až domů.
+
+Webové stránky: [wheelock.cz](http://www.wheelock.cz/kontakty/)
+
+Instagram/Facebook: [wheelockshop](https://www.facebook.com/wheelockshop/)
+
 ### nasvacinu
 #### Nasvacinu jsem založila jako matka tří dětí, které neustále ztrácely svoje láhve a boxy na svačinu. V naší specializované kamenné prodejně a eshopu najdete nejrůznější množství termosek, lahví na vodu, termohrnků, boxů na svačinu či piknikových košů a mnohem více vychytávek, které vám zpříjemní každý den.  
 #### Výše ztráty k 21. 4. 2020: 80 000
