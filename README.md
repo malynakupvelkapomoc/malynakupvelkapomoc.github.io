@@ -1,4 +1,4 @@
-**UPDATE 8. 4. 2020**  
+**UPDATE 22. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -10,6 +10,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 👇
 
 ## Móda a doplňky
+
+### PřipniPIN.cz
+#### Naše značka PŘIPNI PIN vyrábí designové ozdoby do klopy (nejen) pánského saka. Všechny "piny" vyrábíme ručně v České republice a v malých sériích, takže si opravdu dáváme záležet na  originalitě i provedení.
+#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Pomoci nám můžete nákupem na našem e-shopu, kde koupí i jednoho PINečku podpoříte naši malou českou značku, která ozdoby vyrábí poctivě a s láskou. Při zadaní slevového kódu “SPOLECNE” získáte 15% slevu na objednávku. Děkujeme Vám. 
+
+Webové stránky: [pripnipin.cz](https://www.pripnipin.cz/)
+
+Facebook: [Pripnipin.cz](https://www.facebook.com/Pripnipin.cz)
 
 ### Sokino
 #### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
@@ -873,6 +883,26 @@ Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
 
 ## Gastro
 
+### Cafe Ebel
+#### Ebel Coffee nabízí v Praze už 24 let tu nejlepší kávu z domácích farem. Otevřeli jsem vůbec první Coffee shop v ČR, podíleli se na kávové kultuře a vychovali nespočet kávových milovníků. 
+#### Výše ztráty k 21. 4. 2020: 150 000
+
+Forma pomoci: Nákupem naší skvělé nové sklizně Geisha / z Hondurasu/ uděláte dvojí radost - nám i farmářovi z farmy Finca Jerusalen. Navíc při nákupu nad 900 Kč máte dopravu po celé ČR zdarma. Těšíme se a Vás tradičně v Kaprově 11 nebo na našem eshopu. 
+
+Webové stránky: [ebelcoffee.com](https://www.ebelcoffee.com)
+
+Instagram/Facebook: [ebelcoffee](https://www.instagram.com/ebelcoffee/)/[cafeebel](https://www.facebook.com/cafeebel/)
+
+### Muzeum čokolády/čokoláda Lidka
+#### Provozujeme malé soukromé muzeum čokolády Lidka (zal. 1918), jejíž výrobu se nám podařilo po 60ti letech znovu obnovit. Čokolády vyrábíme v rodinné manufaktuře ručně a s láskou od kakaového bobu až po tabulku. 
+#### Výše ztráty k 20. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Můžete u nás udělat radost sami sobě, ale i druhým , třeba darováním poukazu na degustaci čokolády ;-) Ke každé objednávce pro Vás máme připravené malé sladké překvapení a doručení v K. Hoře, Kolíně a okolí je zdarma.
+
+Webové stránky: [chocomuseum.cz](https://www.chocomuseum.cz)
+
+Instagram/Facebook: [chocomuseum](https://www.instagram.com/chocomuseum/)/[chocomuseumkutnahora](https://www.facebook.com/chocomuseumkutnahora/)
+
 ### Džemárna
 #### Džemy a rosoly z lokálních surovin, s minimem cukru a vysokým podílem ovoce. Na Kutnohorsku a Kolínsku sklízím i vařím, želíruji bez chemie. 
 #### Výše ztráty k 17. 4. 2020: zatím nevyčíslena
@@ -1026,6 +1056,28 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 
 ## Domov & design
+
+### nasvacinu
+#### Nasvacinu jsem založila jako matka tří dětí, které neustále ztrácely svoje láhve a boxy na svačinu. V naší specializované kamenné prodejně a eshopu najdete nejrůznější množství termosek, lahví na vodu, termohrnků, boxů na svačinu či piknikových košů a mnohem více vychytávek, které vám zpříjemní každý den.  
+#### Výše ztráty k 21. 4. 2020: 80 000
+
+Forma pomoci: Budeme rádi, když nás podpoříte nákupem přes eshop. Potěšte sebe nebo své blízké šikovnou vychytávkou jako je cestovní kelímek na kávu :-) Ke každé objednávce od nás  dostanete bavlněnou roušku zdarma a při zadání kódu spolutodame ještě 10% slevu.  Děkujeme za každou vaší objednávku 
+
+Webové stránky: [nasvacinu.cz](https://www.nasvacinu.cz)
+
+Instagram/Facebook: [nasvacinu](https://www.instagram.com/nasvacinu/)/[nasvacinucz](https://www.facebook.com/nasvacinucz/)
+
+### BOWBOW.sk
+#### Zdravé maškrty a iné fajnotky pre psy. BIO konzervy, 100% sušené mäso. Balíme ekologicky bez zbytočných obalov. Na váhu, od lokálnych výrobcov.
+#### Výše ztráty k 21. 4. 2020: zatiaľ nevyčíslená
+
+Forma pomoci: 🔥TOTO TU EŠTE NEBOLO🔥
+Pripravili sme si pre vás jarný MEGA VÝPREDAJ -20 % na všetko, čo sa ti zapáči na našom e-shope 🤩Je rok 2020, ktorý vojde do dejín a tak využi našu skvelú ponuku na zdravé maškrty a iné fajnotky pre malých aj veľkých psích maškrtníkov.
+👉🏻KÓD KUPÓNU: 2020 (platí na nákup v minimálnej hodnote 10,00€). 🐾www.bowbow.sk🐾
+
+Webové stránky: [bowbow.sk](https://bowbow.sk)
+
+Instagram: [bowbow.sk](https://www.instagram.com/bowbow.sk/)
 
 ### Dřevomalby
 #### Výstavy, kterých se můžete dotýkat, a které se dotknou i Vás! Snažím se, aby moje obrazy tvořené na dřevě (dřevomalby) nalezly cestu k lidem nejen v prostředí výstav, ale zůstávaly i v jejich domovech.
@@ -1553,6 +1605,7 @@ Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papel
 
 
 ## Beauty
+
 ### LORA International
 #### Přivádíme lidi k tomu, aby si našli chvilku pro sebe a trohcu se hýčkali. Prodávame 100 % přírodní koupelové kuličky a v před pár dni jsme přidali i nabídku antibakteriálních gelů.
 #### Výše ztráty k 7. 4. 2020: 80 000-100 000 CZK
