@@ -11,6 +11,26 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### Dream handmade
+#### Vyrábím šperky a módní doplňky historickou technikou Chainmaille neboli Kroužkování. Používám kvalitní materiály, které nemění svou barvu a jsou vhodné pro alergiky.
+#### Výše ztráty k 22. 4. 2020: 30000
+
+Forma pomoci: Každý sebemenší nákup mi udělá velkou radost. Při nákupu nad 1000 na mém eshopu máte poštovné zdarma.
+
+Webové stránky: [dreamhandmade.eu](https://dreamhandmade.eu/)
+
+Instagram/Facebook: [dream_handmade_](https://www.instagram.com/dream_handmade_/ )/[Dream Handmade Chainmaille](https://www.facebook.com/DreamHandmadeChainmaille/)
+
+### Bass Portal
+#### Poskytujeme hudební služby a prodáváme hudební merchendise.
+#### Výše ztráty k 22. 4. 2020: desetitisíce
+
+Forma pomoci: Zakoupit si naše oblečení, které je vyrobeno v ČR z kvalitních fair trade materiálů. Děkujeme
+
+Webové stránky: [bassportal.com](https://store.bassportal.com)
+
+Facebook: [Bass Portal](https://www.facebook.com/BassPortal)
+
 ### PřipniPIN.cz
 #### Naše značka PŘIPNI PIN vyrábí designové ozdoby do klopy (nejen) pánského saka. Všechny "piny" vyrábíme ručně v České republice a v malých sériích, takže si opravdu dáváme záležet na  originalitě i provedení.
 #### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
