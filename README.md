@@ -1,4 +1,4 @@
-**UPDATE 22. 4. 2020**  
+**UPDATE 24. 4. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -1635,6 +1635,16 @@ Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papel
 
 
 ## Beauty
+
+### Anna Marešová designers s.r.o.
+#### Intimní produkty pro ženy plné něhy a čistoty
+#### Výše ztráty k 22. 4. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme moc rády, když zakoupíte venušiny kuličky přes náš e–shop nebo se zařadíte na čekací listinu na vibrátor. Po dobu karantény nabízíme dopravu zdarma. Děkujeme a opatrujte se ♥
+
+Webové stránky: [hoopdedoo.me](https://whoopdedoo.me/)
+
+Instagram/Facebook: [whoopdedoocz](https://www.instagram.com/whoopdedoocz/?hl=en )/[whoopdedoocz](https://www.facebook.com/whoopdedoocz )
 
 ### LORA International
 #### Přivádíme lidi k tomu, aby si našli chvilku pro sebe a trohcu se hýčkali. Prodávame 100 % přírodní koupelové kuličky a v před pár dni jsme přidali i nabídku antibakteriálních gelů.
