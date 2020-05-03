@@ -11,6 +11,38 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### Šperke
+#### Nabízíme minimalistické šperky z pravého stříbra nebo 14 karátového zlata se surovými diamanty, drahokamy nebo minerály. Každý vytěžený nerost je originál, a tak se stává neopakovatelným originálem také každý šperk, který v naší dílně v Praze s láskou vyrobíme. 
+#### Výše ztráty k 2. 5. 2020: zatím nevyčíslena
+
+Forma pomoci: "Z každé objednávky šperku přispíváme částkou 120 Kč na @energiilekarum zakoupením balíčku pro zdravotníky bojující v první linii proti koronaviru. Balíček zakoupíme jménem a emailem zákazníka, kterému přijde potvrzení o příspěvku do emailu.
+Nabízíme také krizové vouchery na nákup s platností jeden rok, které jsou ve vyšší hodnotě, než je jejich cena."
+
+Webové stránky: [sperke.cz](http://www.sperke.cz/)
+
+Instagram/Facebook: [sperke.cz](https://www.instagram.com/sperke.cz )/[Šperke](https://www.facebook.com/sperke.cz/
+
+### yrnche
+#### Yrnche je české designové studio, zabývající se především návrhem a produkcí eticky a ekologicky vyrobených doplňků z přírodně činěných usní. 
+#### Výše ztráty k 1. 5. 2020: 100000
+
+Forma pomoci: Podpořit nás můžete nákupem našich produktů nebo zakoupením dárkového poukazu. Vše naleznete na našem eshopu nebo od 6.5. vždy st-pá 13-18 hod v našem kamenném obchodě Charaktery (Milady Horákové 13, Praha 7). 
+Vážíme si vaší podpory a přejeme všem pevné zdraví!
+
+Webové stránky: [yrnche.cz](http://www.yrnche.cz/)
+
+Facebook: [yrncheprague](https://www.facebook.com/yrncheprague/)
+
+### Benet v.o.s
+#### Již 30 let vyrábíme a prodáváme ponožky a podkolenky. Najdete u nás ponožky antibakteriální, bambusové,sportovní nebo zdravotní ponožky s jemným svěrem. 
+#### Výše ztráty k 30. 4. 2020: Zatím nevyčíslena
+
+Forma pomoci: Nákupem ponožek, ryze české výroby.Každý z rodiny si u nás určitě  vybere. Děkujeme za každý nákup.
+
+Webové stránky: [benet-ponozky.cz](http://www.benet-ponozky.cz/)
+
+Instagram/Facebook: [benet_cesky_vyrobce_ponozek](https://www.instagram.com/benet_cesky_vyrobce_ponozek/ )/[benet ponozky](https://www.facebook.com/benetponozky/)
+
 ### Dream handmade
 #### Vyrábím šperky a módní doplňky historickou technikou Chainmaille neboli Kroužkování. Používám kvalitní materiály, které nemění svou barvu a jsou vhodné pro alergiky.
 #### Výše ztráty k 22. 4. 2020: 30000
