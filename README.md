@@ -1,4 +1,4 @@
-**UPDATE 3. 5. 2020**  
+**UPDATE 4. 5. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -11,6 +11,17 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### GIOIA by Pavlína Němcová 
+#### České ručně vyráběné šperky  s exkluzivní kolekcí čísel “Den D”, která sčítání všechny dny v měsíci. 
+#### Výše ztráty k 2. 5. 2020: 150 000
+
+Forma pomoci: Každá Vaše objednávka pomůže. Na našem e-shopu si můžete vybrat Vaše důležité číslo/datum nebo důležité číslo/datum Vašich nejbližších a tak je či sebe potěšit velmi osobním dárkem, který Vás bude provázet po celý život. 
+Doprava k Vaším dveřím bude pro Vás zdarma. Velice děkujeme a vážíme si Vaší pomoci.
+
+Webové stránky: [gioia.cz](https://www.gioia.cz)
+
+Instagram/Facebook: [gioia_by_pavlinanemcova](instagram.com/gioia_by_pavlinanemcova)
+
 ### Šperke
 #### Nabízíme minimalistické šperky z pravého stříbra nebo 14 karátového zlata se surovými diamanty, drahokamy nebo minerály. Každý vytěžený nerost je originál, a tak se stává neopakovatelným originálem také každý šperk, který v naší dílně v Praze s láskou vyrobíme. 
 #### Výše ztráty k 2. 5. 2020: zatím nevyčíslena
@@ -20,7 +31,7 @@ Nabízíme také krizové vouchery na nákup s platností jeden rok, které jsou
 
 Webové stránky: [sperke.cz](http://www.sperke.cz/)
 
-Instagram/Facebook: [sperke.cz](https://www.instagram.com/sperke.cz )/[Šperke](https://www.facebook.com/sperke.cz/
+Instagram/Facebook: [sperke.cz](https://www.instagram.com/sperke.cz)/[Šperke](https://www.facebook.com/sperke.cz/)
 
 ### yrnche
 #### Yrnche je české designové studio, zabývající se především návrhem a produkcí eticky a ekologicky vyrobených doplňků z přírodně činěných usní. 
