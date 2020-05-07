@@ -1,4 +1,4 @@
-**UPDATE 4. 5. 2020**  
+**UPDATE 7. 5. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -793,6 +793,17 @@ Forma pomoci: Každý náš výrobek má na sobě jméno ženy, která jej vyrob
 Webové stránky: [metrazdesign.cz](https://metrazdesign.cz/)
 
 Instagram: [metrazdeisgn](https://www.instagram.com/metrazdesign/)
+
+### Zualu design
+#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
+#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+
+Forma pomoci: Dopravné zdarma při nákupu nad 500,- Kč, která platí i pro zakázky na míru! 
+A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Protože vám přijde originální český šperk s rodokmenem, kterým potěšíte nejen sebe, ale i mě... A třeba i někoho, koho tímto kouskem v této těžké době obdarujete - právě teď je radost a pozitivní myšlení nejvíce potřeba! Podpořte udržitelnou tvorbu a předejte kousek naděje, že sen přežije! ♡ Protože #slowjewellery přeci musí přežít! Děkujeme za jakoukoli podporu ♡
+
+Webové stránky: [zualu.cz](https://www.zualu.cz/)
+
+Facebook: [Zualudesign](https://www.facebook.com/Zualudesign)
 
 ### Hana Frisonsova
 #### Oděvní designér a šití na zakázku
