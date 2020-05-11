@@ -1,4 +1,4 @@
-**UPDATE 7. 5. 2020**  
+**UPDATE 11. 5. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -10,6 +10,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 👇
 
 ## Móda a doplňky
+
+### wowdoplnky.cz
+#### Online prodej společenských doplňků na svatbu, ples a podobné společenské události. Jsou to především kravaty, motýlky, kšand apod. ale i šperky, kabelky, peněženky atd. Doplňky jsou z 99% od českých dodavatelů a výrobců.
+#### Výše ztráty k 10. 5. 2020: cca 140 000 Kč
+
+Forma pomoci: Nákupem doplňků pro sebe a své blízké (např. i jako dárek). Nebo i doporučením našeho e-shopu známým, kteří shání doplňky na svatbu. Děkujeme.
+
+Webové stránky: [www.wowdoplnky.cz](https://www.wowdoplnky.cz/z)
+
+Instagram/Facebook: [wowdoplnky.cz](https://www.instagram.com/wowdoplnky.cz/)/[wowdoplnky](https://www.facebook.com/wowdoplnky/)
 
 ### GIOIA by Pavlína Němcová 
 #### České ručně vyráběné šperky  s exkluzivní kolekcí čísel “Den D”, která sčítání všechny dny v měsíci. 
