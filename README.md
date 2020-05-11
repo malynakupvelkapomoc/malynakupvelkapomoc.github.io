@@ -21,6 +21,16 @@ Webové stránky: [www.wowdoplnky.cz](https://www.wowdoplnky.cz/z)
 
 Instagram/Facebook: [wowdoplnky.cz](https://www.instagram.com/wowdoplnky.cz/)/[wowdoplnky](https://www.facebook.com/wowdoplnky/)
 
+### Woxkon
+#### Batohy Woxkon byly navrženy a pečlivě vyrobeny v České republice. U jejich zrodu stála láska k přírodě a městu, radost z tvoření, ale i úcta k lidské práci a respekt k naší planetě. Proto se snažíme neustále zlepšovat a hledat možnosti a spolupráce, které tyto myšlenky podporují. Cílem nebylo vyrobit jen další spotřební zboží, ale batoh, který vám vydrží léta. 
+#### Výše ztráty k 3. 4. 2020: desetitisíce 
+
+Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu. Nikdo nevíme, co bude, ale věříme, že to všechno zvládneme. Co nejdříve. Abychom se mohli zase vrátit do školy, do práce a věnovat se věcem, které nás nejvíce naplňují. 🌍 Při zadání slevového kódu SPOLU získáte 20 % slevu na celou objednávku. A poštovné platíme my. 
+
+Webové stránky: [woxkon.cz](https://www.woxkon.cz)
+
+Instagram/Facebook: [woxkon_batohy](https://www.instagram.com/woxkon_batohy/)/[woxkon](https://www.facebook.com/woxkon/)
+
 ### GIOIA by Pavlína Němcová 
 #### České ručně vyráběné šperky  s exkluzivní kolekcí čísel “Den D”, která sčítání všechny dny v měsíci. 
 #### Výše ztráty k 2. 5. 2020: 150 000
@@ -266,16 +276,6 @@ Děkujeme a těšíme se na viděnou!!!
 Webové stránky: [parazit.cz](http://www.parazit.cz/)
 
 Facebook: [FashionshopParazit](https://www.facebook.com/FashionshopParazit/)
-
-### Woxkon
-#### Batohy Woxkon byly navrženy a pečlivě vyrobeny v České republice. U jejich zrodu stála láska k přírodě a městu, radost z tvoření, ale i úcta k lidské práci a respekt k naší planetě. Proto se snažíme neustále zlepšovat a hledat možnosti a spolupráce, které tyto myšlenky podporují. Cílem nebylo vyrobit jen další spotřební zboží, ale batoh, který vám vydrží léta. 
-#### Výše ztráty k 3. 4. 2020: desetitisíce 
-
-Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu. Nikdo nevíme, co bude, ale věříme, že to všechno zvládneme. Co nejdříve. Abychom se mohli zase vrátit do školy, do práce a věnovat se věcem, které nás nejvíce naplňují. 🌍 Při zadání slevového kódu SPOLU získáte 20 % slevu na celou objednávku. A poštovné platíme my. 
-
-Webové stránky: [woxkon.cz](https://www.woxkon.cz)
-
-Instagram/Facebook: [woxkon_batohy](https://www.instagram.com/woxkon_batohy/)/[woxkon](https://www.facebook.com/woxkon/)
 
 ### Brašnářství Lukáš Ardolf
 #### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
