@@ -1502,6 +1502,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Loono, z.s.
+#### Jsme nezisková organizace, která učí veřejnost o zdravotní prevenci. K financování činnosti nám pomáhá vlastní merch, který prodáváme skrze charitativní e-shop (shop.loono.cz).
+#### Výše ztráty k 13. 5. 2020: zatím nevyčíslená
+
+Forma pomoci: Můžou si koupit jeden z našich charititavních předmětů na shopu :-)! Odměnou jim bude dobrý pocit, že pomohli neziskovce v těžkých časech a zároveň přišpěli na dobrou věc.
+
+Webové stránky: [loono.cz](https://www.loono.cz/)
+
+Instagram/Facebook: [loonocz](https://www.instagram.com/loonocz/)/[loonocz](https://www.facebook.com/loonocz/)
+
 ### Neposer se
 #### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
 #### Výše ztráty k 14. 4. 2020: 50000+
