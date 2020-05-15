@@ -1,4 +1,4 @@
-**UPDATE 11. 5. 2020**  
+**UPDATE 15. 5. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -1141,6 +1141,16 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### LUIS
+#### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
+#### Výše ztráty k 14. 5. 2020: 300000
+
+Forma pomoci: Podpořit nás můžete nákupem na našem e-shopu nebo kamenné prodejně v Brně. Každé vaší pomoci si vážíme! Tak vám na oplátku nabízíme 30% slevu na všechny nezlevněné produkty při zadání slevového kódu "VELKAPOMOC". Děkujeme Vám!
+
+Webové stránky: [luis.cz](https://www.luis.cz/)
+
+Instagram/Facebook: [luis_decorationcz](https://www.instagram.com/luis_decorationcz/)/[Luis decoration](https://www.facebook.com/Luisdecoration.shop/)
+
 ### Wheelock design shop 
 #### Je mladý obchod na Letné, kde nabízíme zajímavé a neotřelé, české designérské značky i značky ze zahraničí. Naším cílem je ukázat, že krásné a kvalitní doplňky si může dovolit každý. Nabízíme doplňky do domacnosti, jako třeba porcelán, dřevené doplňky, kuchyňský textil, a také šperky a hodinky, hračky pro děti, doplňky pro může, kožené batohy a barefoot mokasíny. Vybíráme věci vyrobené z kvalitních přírodních materiálů, organických bio ingredientů, vyrobené ručně a s láskou. 
 #### Výše ztráty k 22. 4. 2020: zatím nevyčísleno
@@ -1149,7 +1159,7 @@ Daná situace nás dovedla k procesu likvidace, který bude následovat definiti
 
 Webové stránky: [wheelock.cz](http://www.wheelock.cz/kontakty/)
 
-Instagram/Facebook: [wheelockshop](https://www.facebook.com/wheelockshop/)
+Facebook: [wheelockshop](https://www.facebook.com/wheelockshop/)
 
 ### nasvacinu
 #### Nasvacinu jsem založila jako matka tří dětí, které neustále ztrácely svoje láhve a boxy na svačinu. V naší specializované kamenné prodejně a eshopu najdete nejrůznější množství termosek, lahví na vodu, termohrnků, boxů na svačinu či piknikových košů a mnohem více vychytávek, které vám zpříjemní každý den.  
