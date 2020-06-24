@@ -11,6 +11,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### Opasky Fiala
+#### Vyrábím pánské i dámské kožené opasky.
+#### Výše ztráty k 4. 6. 2020: 80000
+
+Forma pomoci: Nakoupit opasek. Nabízím dopravu zdarma.
+
+Webové stránky: [www.opaskyfiala.cz](https://www.opaskyfiala.cz/)
+
+Facebook: [opaskyfiala](https://www.facebook.com/opaskyfiala/)
+
 ### wowdoplnky.cz
 #### Online prodej společenských doplňků na svatbu, ples a podobné společenské události. Jsou to především kravaty, motýlky, kšand apod. ale i šperky, kabelky, peněženky atd. Doplňky jsou z 99% od českých dodavatelů a výrobců.
 #### Výše ztráty k 10. 5. 2020: cca 140 000 Kč
