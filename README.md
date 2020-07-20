@@ -1,4 +1,4 @@
-**UPDATE 15. 5. 2020**  
+**UPDATE 20. 7. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -1150,6 +1150,16 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 
 ## Domov & design
+
+### RostoucíNábytek.com
+#### Prodej rostoucího nábytku pro děti v e-shopu a na showroomu.
+#### Výše ztráty k 3. 7. 2020: Nelze přesně odhadnout. Snížení zájmu o prohlídky na showroomu je citelné.
+
+Forma pomoci: Návštěva vzorkovny a nákup. Aktuálně máme slevy na akční sety.
+
+Webové stránky: [rostoucinabytek.com](https://www.rostoucinabytek.com/)
+
+Facebook: [[rostoucinabytek](https://www.facebook.com/rostoucinabytek/)
 
 ### LUIS
 #### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
