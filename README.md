@@ -11,6 +11,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### BEK•BEK
+#### BEK•BEK jsou upcyklované batohy z odřezků stínících rolet, které vznikají při výrobě a dále by se nevyužily. Celý proces od návrhu po realizaci probíhá v Olomouci.
+#### Výše ztráty k 23. 10. 2020: zatím nevyčíslena
+
+Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu, proto teď máte poštovné zdarma na všechny batohy. Děkujeme, že nás podpoříte touto online cestou, brzo se uvidíme zase naživo v designových obchodech :)
+
+Webové stránky: [bekbek.cz](http://www.bekbek.cz)
+
+Instagram/Facebook: [bekbek.cz](https://www.instagram.com/bekbek.cz/)/[bekbek.cz](https://www.facebook.com/bekbek.cz/)
+
 ### Opasky Fiala
 #### Vyrábím pánské i dámské kožené opasky.
 #### Výše ztráty k 4. 6. 2020: 80000
@@ -1531,6 +1541,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 
 ## Služby
+
+### Řekni To Merchem
+#### Pomáháme lokálním umělcům, neziskovkám, malým firmám a všem, pro které prodej merche znamená důležitý přínos. Postaráme se o návrh, výrobu, prodej a distribuci a 80 % z prodeje každého produktu posíláme každý měsíc konkrétnímu zapojenému projektu, 20 % pokrývá provoz e-shopu.
+#### Výše ztráty k 21. 10. 2020: zatím nevyčíslená
+
+Forma pomoci: Nákupem na e-shopu. To je gró celé myšlenky, jak pomáhat v širokém spektru mnoha lidem, pro které je podnikání v této době náročné. 
+
+Webové stránky: [reknitomerchem.c](https://shop.reknitomerchem.cz//)
+
+Instagram/Facebook: [rekni_to_merchem](https://www.instagram.com/rekni_to_merchem/)/[reknitomerchem](https://www.facebook.com/reknitomerchem)
 
 ### Loono, z.s.
 #### Jsme nezisková organizace, která učí veřejnost o zdravotní prevenci. K financování činnosti nám pomáhá vlastní merch, který prodáváme skrze charitativní e-shop (shop.loono.cz).
