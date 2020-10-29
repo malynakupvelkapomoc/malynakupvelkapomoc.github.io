@@ -176,9 +176,9 @@ Instagram/Facebook: [moment.praha](https://www.instagram.com/moment.praha/)/[mom
 
 ### TEABAG
 #### Designové kabelky a batohy z čalounického odpadu. V TEABAGu se snoubí skvělá myšlenka s krásným designem. Každý kus je vyrobený na míru zbytkovému materiálu tak, aby se minimalizoval odpad. Omezené množství materiálu dává jedinečnost a originalitu každému kusu.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčísleno
+#### Výše ztráty k 29. 10. 2020: 70000
 
-Forma pomoci: Nákup výrobků nebo dárkových poukazů TEABAG prostřednictvím obchodu na FB. Po domluvě je možná zakázková výroba i jiných barevných kombinací. Ke každé objednávce na FB je až do skončení karanténních opatření rouška TEABAG a doprava zdarma.
+Forma pomoci: Pomůže jakákoliv objednávka :). Nabízím zakázkovou výrobu tašek a batohů. Můžete si vybrat z pěti modelů a barevnost si sami vybrat z právě dostupných materiálů podle toho, který k vám nejvíce sedne. Stačí zavolat a vše s vámi ráda proberu. Navíc teď neúčtuji poštovné.
 
 Webové stránky: [teabag.cz](http://www.teabag.cz/)
 
@@ -362,9 +362,9 @@ Facebook: [emhandmadefashion](https://www.facebook.com/emhandmadefashion/)
 
 ### ELAJEIOVA
 #### Výrábím kožené tašky, kožené doplňky.
-#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
+#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
 
-Forma pomoci: Snížila jsem cenu u nejoblíbenějšího produktu - velké kožené tašky NATURAPURA a peněženky FOGLIA - k nákupu Vám také přibalím bavlněnou roušku.  Vše doplním drobnými ilustracemi, které Vás potěší na duši:) Balíček Vám doručí kurýr DPD až ke dveřím.
+Forma pomoci: Připravila jsem pro Vás peněženky v nových barevných odstínech a nový typ crossbody kabelky. Ke každému produktu dostanete malou kresbu na pohlednici, pro radost Vám, nebo poslání radosti někomu dál. Opatrujte se a buďte zdraví!
 
 Webové stránky: [elajediova.com](https://www.elajediova.com/)
 
@@ -736,9 +736,9 @@ Instagram: [wemove_prague](https://www.instagram.com/wemove_prague/)
 
 ### Prague tailor
 #### Módní návrhářka tvořící slow fashion na míru. Tři roky tvořím designové pánské košile a půl roku pod značkou Petra Györgyová fashion brand vznikají limitované kolekce dámských šatů, overalů, košil a kabátů. Najdete mě v Showroomu Londýnská 38.
-#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
+#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
 
-Forma pomoci: Možnost nákupu limitovaných kolekcí letních pánských košil a dámské kolekce. Případně se domluvit na zakázce na míru, kterou v příštích pár týdnech zrealizujeme. Možnost nákupu voucheru v hodnotě 1000-3500 Kč. Rozvoz kolekce po Praze zdarma.
+Forma pomoci: Individuální schůzky pro šití košil na míru mohou probíhat v bezpečí showroomu nadále. Podpoříte nás i nákupem šitých roušek, business sadou dvou roušek a ručně šitého kapesníčku do saka nebo nákupem voucheru v hodnotě od 1000 Kč. Rozvor v rámci Prahy zdarma. Děkujeme!
 
 Webové stránky: [prague-tailor.cz](http://prague-tailor.cz/)
 
@@ -1253,9 +1253,9 @@ Webové stránky: [skfactory.cz](https://www.skfactory.cz/)
 
 ### BeneWood
 #### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
-#### Výše ztráty k 12. 4. 2020: zatím nevyčíslena
+#### Výše ztráty k 29. 10. 2020: 180000
 
-Forma pomoci: Na novém e-shopu nabízíme výběr mnoha druhů dřevěných výrobků, poukázek i blog kde můžete nahlédnout do zákulisí značky. 
+Forma pomoci: Na mém nově spuštěném e-shopu si můžete zakoupit mnohé dřevěné výrobky či poukázky na ně. Prostřednictvím značky BeneWood vám chci přinést ruční práci, do které vkládám svoji energii, pokoru, design i sám sebe a vytvářením užitných předmětů dávám dřevu nový tvar a vracím smysl tam, kde jeho růst již skončil. 
 
 Webové stránky: [benewood.cz](https://www.benewood.cz/)
 
@@ -1273,9 +1273,9 @@ Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-60790275597
 
 ### Hugo chodí bos 
 #### Je první 100% české hračkářství. Pět let píše dějiny české hračky a snaží se dostat české hračky k dětem. V Praze má Hugo dva kamenné obchody a jeden z nich je kvůli aktuální situaci, nucen zavřít navždy.  
-#### Výše ztráty k 6. 4. 2020: 200 000
+#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
 
-Forma pomoci: Budeme vděčni za každou objednávku na našem eshopu. Podívejte se k nám, i když třeba nemáte děti. Můžete tak zavzpomínat na své dětství. Nabízíme také dárkové poukazy, nebo můžete rovnou poslat někomu překvapení a my k tomu přidáme váš vzkaz. 
+Forma pomoci: Pošlete k nám Ježíška, podpoříte tím i našich 150 českých výrobců hraček. K nákupu nad 1000,- céčka zdarma. 
 
 Webové stránky: [hugochodibos.cz](https://www.hugochodibos.cz)
 
@@ -1674,9 +1674,9 @@ Instagram/Facebook: [kralovskesvatby](https://www.instagram.com/kralovskesvatby/
 
 ### Knihkupectví & knihařství
 #### Prodej knih, dárkového zboží a obrazů.
-#### Výše ztráty k 28. 3. 2020: 40000
+#### Výše ztráty k 29. 10. 2020: 40000
 
-Forma pomoci: Nově nabízím knižní menu - každý den tři knížky vybrané k nějakému tématu. Sledujte na webu knihkupectví, na facebooku. Objednat je možné emailem, nebo přes FB, na pohodlnější verzi pracuju. Knihy ráda pošlu, nebo si je můžete po dohodě osobně vyzvednout.
+Forma pomoci: Do každé zásilky, kterou si někdo na eshopu objedná, přidávám malý dárek.
 
 Webové stránky: [knihy-galerie.cz](http://www.knihy-galerie.cz)
 
