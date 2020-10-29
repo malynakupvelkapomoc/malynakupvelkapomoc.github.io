@@ -11,6 +11,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### Patrick Poppet
+#### | Neděláme kabelky, tvoříme poppetky |
+#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem produktů nebo voucheru přes e-shop. Doručení v rámci České a Slovenské republiky je zdarma. Potěší také sdílení a lajkování příspěvků na sociálních sítích ;-). Děkujeme!
+
+Webové stránky: [patrickpoppet.cz](https://www.patrickpoppet.cz/)
+
+Instagram/Facebook: [patrickpoppetprague](https://www.instagram.com/patrickpoppetprague)/[PatrickPoppetPrague](https://www.facebook.com/PatrickPoppetPrague)
+
 ### BEK•BEK
 #### BEK•BEK jsou upcyklované batohy z odřezků stínících rolet, které vznikají při výrobě a dále by se nevyužily. Celý proces od návrhu po realizaci probíhá v Olomouci.
 #### Výše ztráty k 23. 10. 2020: zatím nevyčíslena
