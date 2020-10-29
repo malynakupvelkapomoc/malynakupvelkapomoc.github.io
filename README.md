@@ -519,7 +519,7 @@ Instagram/Facebook: [sweet666design](https://www.instagram.com/sweet666design/)/
 #### MINIMALISMUS.NADČASOVOST.MINI SÉRIE. Výrobky .about leather. jsou vyrobeny v České republice, v Praze. Jedná se o ruční práci, každý výrobek je vyroben s úctou a láskou k řemeslu a je tím pádem originál. Pracuji s velmi kvalitní kůží z Itálie, konkrétně z Toskánska. 
 #### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
 
-Forma pomoci: K nákupu dostanete dárek - kožený obal na brýle + DPD dopravu zdarma (ČR, SR).
+Forma pomoci: Celý listopad a prosinec bude v rámci ČR a SR doprava zdarma + malý dárek. Děkuji za podporu.
 
 Webové stránky: [aboutleather.cz](https://www.aboutleather.cz)
 
@@ -1729,9 +1729,9 @@ Instagram: [kartoteka_store](https://www.instagram.com/kartoteka_store/)
 
 ### Daily
 ####  Při tvorbě vycházím z koloběhu ročních období, dostupnosti a rozmanitosti přírodních darů. Tvořím s ohledem na přírodu a bez zbytečného odpadu. Mým snem je zachytit pomíjivou krásu přírody, aby vám dělala radost denně.
-#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
+#### Výše ztráty k 29. 10. 2020: 50 000
 
-Na našem webu nabízíme vouchery na kytice a workshopy a květinové předplatné za výhodnější cenu. Vouchery jsou platné jeden rok a poslouží i jako krásný dárek. Poštovné je zdarma.
+Nejvíce nám pomůže objednávka adventního nebo vánočního věnce, řezané kytice na váš štědrovečerní stůl nebo vánoční dekorace. Doručení po Praze je zdarma!
 
 Webové stránky: [atelierdaily.cz](https://www.atelierdaily.cz/)
 
