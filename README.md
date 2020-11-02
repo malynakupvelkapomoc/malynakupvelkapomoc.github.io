@@ -11,6 +11,47 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### No!Madame
+#### Oblečení pro všechny milovníky motorek, piva, rock'n'rollu a potetovaných holek.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákup oblečení.
+
+Webové stránky: [nomadame.cz](http://www.nomadame.cz/)
+
+Instagram/Facebook: [nomadamebrand](https://www.instagram.com/nomadamebrand/)/[nomadamebrand](https://www.facebook.com/nomadamebrand/)
+
+### Hana Frisonsova
+#### Oděvní designér a šití na zakázku
+#### Výše ztráty k 2. 11. 2020: 60 000
+
+Forma pomoci: Na mém E-SHOPU si můžete objednat něco z aktuálních kolekcí, roušky i dárkový voucher. Můžete mi také napsat a nechat si vyrobit speciální kus z kolekce na zakázku! Poštu mám zdarma, nebo je možné osobní vyzvednutí ve SmetanaQ po domluvě. Za jakoukoli podporu moc děkuji!
+
+Webové stránky: [shop.hanafrisonsova.com](https://shop.hanafrisonsova.com/)
+
+Instagram/Facebook: [hanafrisonsova](https://www.instagram.com/hanafrisonsova/)/[hanafrisonsova](https://www.facebook.com/hanafrisonsova)
+
+### yo_soy
+#### Minimalistické šperky z moderních materiálů
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Budu moc ráda, když si vyberete šperk na e-shopu, kde nyní nabízím poštovné při nákupu nad 1000 korun zdarma. Připravila jsem nové kolekce, kterými můžete udělat radost pod stromečkem svým blízkým.
+
+Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
+
+Facebook/Instagram: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
+
+### Live Sweaters
+#### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Pro toto období doporučujeme basic trika z merino vlny a funkční merino ponožky s protiklíšťovou úpravou (jestli máte možnost vyrazit třeba na zahradu). Díky benefitům merino vlny naše produkty dlouho vydrží a nemusíte je tak často prát. Vše vyrábíme v Čechách.
+#### Výše ztráty k 2. 11. 2020: 30000+
+
+Forma pomoci: Udělejte sobě i blízkým hezké Vánoce. :) 
+Budu moc rád, když nás podpoříte nákupem produktů nebo voucherů. Navíc máme pro všechny DOPRAVU přes Zásilkovnu ZDARMA (ČR, SR) a ještě slevu 10% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
+
+Webové stránky: [livesweaters.eu](https://www.livesweaters.eu/cs)
+
+Facebook/Instagram: [LiveSweaters]( https://www.facebook.com/LiveSweaters/)/[livesweaters](https://www.instagram.com/livesweaters/ )
+
 ### Buffet
 #### Navrhovanie a tvorba dámskej a pánskej módy
 #### Výše ztráty k 2. 11. 2020: 100 000
@@ -595,16 +636,6 @@ Webové stránky: [sarkastrnadova.cz](https://www.sarkastrnadova.cz/menu)
 
 Instagram: [strnadsarka](https://instagram.com/strnadsarka?igshid=c5smahulaw7h)
 
-### yo_soy
-#### Minimalistické šperky z moderních materiálů
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Ráda se zákaznicemi setkávám na různých design marketech a je to pro mne důležitý zdroj příjmů - tyto hromadné akce se ale dlouho nebudou konat. Stejně tak jsou nyní uzavřené lokální obchody, kam šperky dodávám.  Proto budu ráda, když si vyberete šperk přes internet z mého e-shopu, kde nyní nabízím poštovné zdarma. Můžete potěšit sebe nebo někoho blízkého a zároveň mne podpořit v nelehké situaci. Děkuji!
-
-Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
-
-Facebook/Instagram: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
-
 ### Best4Run
 #### Jsme malá běžecká speciálka v Přerově, kterou před pěti lety otevřeli manželé se třemi dětmi. Každým dnem, kterým máme zavřeno, se blížíme k možnému ukončení provozu. Nejvíce jsme si vždy zakládali na tom, že tu jsme pro běžce, vybíráme s nimi, necháme je všechno v klidu vyzkoušet a pokud společně nenajdeme ty pravé boty, raději jim neprodáme žádné než takové, které by jim neseděly.
 #### Výše ztráty k 31. 3. 2020: 450000
@@ -626,16 +657,6 @@ Děkujeme za podporu a buďte zdrávi #raponetwo
 Webové stránky: [raprap.cz](https://www.raprap.cz/)
 
 Instagram: [raponetwo](https://www.instagram.com/raponetwo/)
-
-### Live Sweaters
-#### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Pro toto období doporučujeme basic trika z merino vlny a funkční merino ponožky s protiklíšťovou úpravou (jestli máte možnost vyrazit třeba na zahradu). Díky benefitům merino vlny naše produkty dlouho vydrží a nemusíte je tak často prát. Vše vyrábíme v Čechách.
-#### Výše ztráty k 30. 3. 2020: 30000+
-
-Forma pomoci: Budu moc rád, když nás podpoříte a koupíte si nějaký náš produkt nebo voucher v hodnotě 500 – 5000 Kč s roční platností. Navíc máme pro všechny DOPRAVU ZDARMA a ještě slevu 10% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
-
-Webové stránky: [livesweaters.eu](https://www.livesweaters.eu/cs)
-
-Facebook/Instagram: [LiveSweaters]( https://www.facebook.com/LiveSweaters/)/[livesweaters](https://www.instagram.com/livesweaters/ )
 
 ### sweet666design - Dana Hapalová
 #### původní česká módní značka založena designérkou Danou Hapalovou roku 2003
@@ -666,16 +687,6 @@ Forma pomoci: 15% zlava na novu kolekciu ULTIMATE. Nákup přes nlmtdesign@gmail
 Webové stránky: [nlmtdesign.com](https://www.nlmtdesign.com/)
 
 Instagram/Facebook: [nlmtdesign](https://www.instagram.com/nlmtdesign/)/[nlmtdesign](https://www.facebook.com/NLMTdesign/ )
-
-### No!Madame
-#### Oblečení pro všechny milovníky motorek, piva, rock'n'rollu a potetovaných holek.
-#### Výše ztráty k 29. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Nákupem přes náš e-shop, kde nabízíme při objednávce nad 1000,- dopravu zdarma.
-
-Webové stránky: [nomadame.cz](http://www.nomadame.cz/)
-
-Instagram/Facebook: [nomadamebrand](https://www.instagram.com/nomadamebrand/)/[nomadamebrand](https://www.facebook.com/nomadamebrand/)
 
 ### MOOQ
 #### Výroba a prodej designového sportovního oblečení
@@ -886,16 +897,6 @@ A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Proto�
 Webové stránky: [zualu.cz](https://www.zualu.cz/)
 
 Facebook: [Zualudesign](https://www.facebook.com/Zualudesign)
-
-### Hana Frisonsova
-#### Oděvní designér a šití na zakázku
-#### Výše ztráty k 25. 3. 2020: 60 000
-
-Forma pomoci: Na e-shopu si můžete vybrat košili na míru nebo jiný produkt z nabídky. Také si můžete objednat voucher a domluvíme se individuálně. Postupně budu také do e-shopu přidávat další produkty i ze starších kolekcí. 
-
-Webové stránky: [shop.hanafrisonsova.com](https://shop.hanafrisonsova.com/)
-
-Instagram/Facebook: [hanafrisonsova](https://www.instagram.com/hanafrisonsova/)/[hanafrisonsova](https://www.facebook.com/hanafrisonsova)
 
 ### Eliška Lhotská jewellery
 #### šperk
@@ -1173,6 +1174,27 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### SUPERMARKET WC
+#### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
+#### Výše ztráty k 2. 11. 2020: 70000
+
+Forma pomoci: "Udělejte si radost nákupem na našem eshopu. Prohlédněte si produkty od českých designových značek, dětské knihy z malých nakladatelství nebo neopakovatelné umělecké kousky. Podpoříte tak práci českých značek, tvůrců z Karlovarska i celé ČR. Kreativita nás zachrání.  
+Děkujeme vám za podporu na jaře. I nadále obnovujte klid a dobíjejte baterky vším, co vás dělá opravdu šťastnými."
+
+Webové stránky: [supermarketwc.cz]( http://eshop.supermarketwc.cz/)
+
+Instagram: [supermarket.wc ](https://www.instagram.com/supermarket.wc /)
+
+### Stehlík design
+#### Jsme manželé Alice a Petr a v roce 2015 jsme založili porcelánovou dílnu. Věnujeme se výrobě šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů, které jsou nyní zavřené, a přišli jsme také o plánované zakázky. Každý týden na e-shop přidáváme nové produkty.
+#### Výše ztráty k 2. 11. 2020: 150000
+
+Forma pomoci: Letos se nejspíše neuvidíme na žádném design marketu a kamenné obchody kde můžete nakoupit naše porcelánové šperky jsou zavřené. Nejlepší forma pomoci je nás podpořit nákupem přímo z našeho e-shopu. Veškeré naše produkty jsou on-line a poštovné nad 1000,-Kč máte zdarma. Děkujeme.
+
+Webové stránky: [stehlikdesign.cz](https://stehlikdesign.cz/)
+
+Instagram/Facebook: [stehlikdesign](https://www.instagram.com/stehlikdesign)/[stehlikdesign](https://www.facebook.com/stehlikdesign)
+
 ### Clap Design
 #### Navrhujeme a vyrábíme kvalitní doplňky do kuchyně a ke stolování. Dřevěné produkty.
 #### Výše ztráty k 2. 11. 2020: 100000
@@ -1336,26 +1358,6 @@ Forma pomoci: Každá objednávka učiněná přes náš internetový obchod ná
 Webové stránky: [kokedamy.cz](https://www.kokedamy.cz)
 
 Facebook: [kokedamy](https://www.facebook.com/kokedamy/)
-
-### Stehlík design
-#### Jsme manželé Alice a Petr a v roce 2015 jsme založili porcelánovou dílnu. Věnujeme se výrobě šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů, které jsou nyní zavřené, a přišli jsme také o plánované zakázky. Každý týden na e-shop přidáváme nové produkty. Nyní chystáme kolekci broží z barevného porcelánu. V dílně se snažíme nezastavovat a, pokud to půjde, rádi bychom opět vystavovali na Designbloku 2020 s naší experimentální tvorbou.
-#### Výše ztráty k 31. 3. 2020: 35 000
-
-Forma pomoci: Na e-shopu nově nabízíme dopravu zdarma na všechny objednávky a máme připravené dárkové poukazy už od 250 Kč. Každá objednávka nám pomůže zajistit nejen chod naší dílny ale i naší domácnosti. Za každý i malý nákup budeme vděční a budeme se Vám moci odvděčit porcelánovou radostí i v budoucnu.
-
-Webové stránky: [stehlikdesign.cz](https://stehlikdesign.cz/)
-
-Instagram/Facebook: [stehlikdesign](https://www.instagram.com/stehlikdesign)/[stehlikdesign](https://www.facebook.com/stehlikdesign)
-
-### SUPERMARKET WC
-#### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Nákup produktů přes náš eshop. Každá objednávka nám pomůže. Pečujte o své sny, obnovujte klid a pěstujte kreativitu. Dobíjejte baterky a dělejte radost sobě a druhým. 
-
-Webové stránky: [supermarketwc.cz]( http://eshop.supermarketwc.cz/)
-
-Instagram: [supermarket.wc ](https://www.instagram.com/supermarket.wc /)
 
 ### Lavandia s.r.o.
 #### Levandulová farma z jižní Moravy.
@@ -1555,6 +1557,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Polagraph
+#### Analogová a polaroidová fotografie, vyvolávání fotografických filmů, ručně dělaná fotoalba, repasované vintage fotoaparáty na film i na Polaroid. 
+#### Výše ztráty k 2. 11. 2020: 1000000
+
+Forma pomoci: Budeme rádi, když nás podpoříte tím, že budete i nadále nadšeně fotit na kinofilmy nebo na Polaroidy, sdílet s námi fotky a třeba si od nás necháte vyvolat filmy, vytisknout či zarámovat fotky anebo si u nás vyberete nový analogový foťák. 
+
+Webové stránky: [polagraph.cz](http://www.polagraph.cz)
+
+Instagram/Facebook: [polagraphgallery](https://www.instagram.com/polagraphgallery/)/[PolagraphGallery](www.facebook.com/PolagraphGallery/)
+
 ### Knihkupectví & knihařství
 #### Prodej knih, dárkového zboží a obrazů.
 #### Výše ztráty k 2. 11. 2020: 40000
@@ -1635,16 +1647,6 @@ Forma pomoci: Budeme moc rádi, když nás podpoříte nákupem knihy, workshopu
 Webové stránky: [neposerse.cz](https://neposerse.cz/)
 
 Instagram/Facebook: [neposerse](https://www.instagram.com/neposerse/)/[neposerse](https://facebook.com/neposers/)
-
-### Polagraph
-#### Analogová a polaroidová fotografie, vyvolávání fotografických filmů, ručně dělaná fotoalba, repasované vintage fotoaparáty na film i na Polaroid. 
-#### Výše ztráty k 8. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Nepřestávejte fotit – je jaro, města jsou vylidněná, v přírodě je nádherně, je dlouho světlo, a tak se i doma dají nafotit perfektní snímky. Budeme rádi, když se budete našemu společnému koníčku věnovat i teď, v téhle těžké době! Uděláme všechno proto, abychom vám v tom pomohli. Vyvoláváme a prodáváme filmy i fotoalba, píšeme blogy i tipy a rady. 
-
-Webové stránky: [polagraph.cz](http://www.polagraph.cz)
-
-Instagram/Facebook: [polagraphgallery](https://www.instagram.com/polagraphgallery/)/[PolagraphGallery](www.facebook.com/PolagraphGallery/)
 
 ### Blooming 
 #### Jsme kreativní květinové studio v centru Dejvic, které staví na 20-ti leté zkušenosti. Zaměřujeme se na profesionální vazbu květin, neotřelé dekorace, a především na svatební floristiku. 
