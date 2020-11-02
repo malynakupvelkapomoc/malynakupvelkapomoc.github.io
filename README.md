@@ -11,6 +11,44 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+
+### DARK / Concept Store
+#### Store s českou a slovenskou designérskou módou a doplňky zaměřený na streetwear a oblečení tmavých barev
+#### Výše ztráty k 2. 11. 2020: 60000
+
+Forma pomoci: Exkluzivně pro návštěvníky máme jako poděkování DÁRKOVÉ BALENÍ ZDARMA - stačí do poznámky k objednávce napsat heslo Malý nákup - velká pomoc! a který produkt od nás budete chtít zabalit do černého papíru a saténové mašle. 
+
+Webové stránky: [darkstore.cz](https://www.darkstore.cz/)
+
+Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_store)/[darkconceptstore](https://www.facebook.com/darkconceptstore/)
+
+### BELDA
+#### Jsme  rodinné šperkařství s dlouholetou tradicí, všechny naše šperky  vyrábíme ručně v  Turnovské dílně.
+#### Výše ztráty k 2. 11. 2020: 100 000
+
+Forma pomoci: Objednáním i malého šperku, jak z naší nabídky,  tak na zakázku, rádi se s Vámi  domluvíme po mailu, či telefonu. 
+
+Webové stránky: [belda.cz](https://www.belda.cz)
+
+Instagram/Facebook: [beldafactory](http://instagram.com/beldafactory)/[beldafactory](http://facebook.com/beldafactory)
+
+### Sokino
+#### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
+#### Výše ztráty k 2. 11. 2020: cca 50 000
+
+Forma pomoci: "V předvánočním období nás můžete podpořit nákupen ponožek na našem 
+e-shopu nebo objednávkou vánočního předplatného pro své blízké. Ponožky pro vás zabalíme do krásného vánočního obalu.
+Na měsíc listopad jsme připravili akci PODPORUJEME MOVEMBER 2020. Pojďme společně podpořit osvětu nemoci, na kterou se nyní vůbec nemyslí. Ukážme světu kníry. 
+🏃‍♀️🏃‍♂️ Koupí ponožek RUN for Movember přispějete 30,- Kč nadaci Muži proti rakovině. 
+Za like nebo sdílení na sociálních sítích budeme vděční.
+Sleva 20% s kódem: 20NAVSE, (neplatí na předplatné a ponožky v akci).
+Doprava ZDARMA od nákupu nad 1200 Kč."
+
+Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
+
+Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/[sokinoponozky](https://www.facebook.com/sokinoponozky/)
+
+
 ### Brašnářství Lukáš Ardolf
 #### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
 #### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
@@ -382,16 +420,6 @@ Webové stránky: [pripnipin.cz](https://www.pripnipin.cz/)
 
 Facebook: [Pripnipin.cz](https://www.facebook.com/Pripnipin.cz)
 
-### Sokino
-#### České originální ponožky v prémiové kvalitě. Jsou tak pohodlné! Nebudete je chtít večer sundat.
-#### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Podpořit nás můžete nákupen na našem e-shopu, objednávkou předplatného pro své blízké. Za like nebo sdílení na sociálních sítích budeme vděční. Sleva 20% s kódem: 20NAVSE. Doprava ZDARMA od nákupu nad 1200 Kč.
-
-Webové stránky: [sokino.cz](https://www.sokino.cz/obchod/)
-
-Instagram/Facebook: [sokino_official](https://www.instagram.com/sokino_official/)/[sokinoponozky](https://www.facebook.com/sokinoponozky/)
-
 ### ROE / Linda Retterová
 #### ROE je malé textilní studio Lindy Retterové zaměřující se na rozmanité tiskové techniky a výrobu limitovaných edic autorského oblečení a doplňků.
 #### Výše ztráty k 15. 4. 2020: zatím nevyčíslena
@@ -482,16 +510,6 @@ Forma pomoci: Poštovné zdarma a darček ku každej objednávke. Vďaka vašim 
 Webové stránky: [severanka.com](https://www.severanka.com/)
 
 Instagram/Facebook: [severanka.sk_slowfashion](https://www.instagram.com/severanka.sk_slowfashion/)/[severanka.sk](https://www.facebook.com/severanka.sk)
-
-### BELDA
-#### Jsme  rodinné šperkařství s dlouholetou tradicí, všechny naše šperky  vyrábíme ručně v  Turnovské dílně.
-#### Výše ztráty k 8. 4. 2020: 100 000
-
-Forma pomoci: Objednáním i malého šperku, jak z naší nabídky,  tak na zakázku, rádi se s Vámi  domluvíme po mailu, či telefonu, doprava zdarma  je samozřejmostí. 
-
-Webové stránky: [belda.cz](https://www.belda.cz)
-
-Instagram/Facebook: [beldafactory](http://instagram.com/beldafactory)/[beldafactory](http://facebook.com/beldafactory)
 
 ### Tkalcovna Kubák 
 #### Naše tkalcovna je malá rodinná firma fungující od roku 1870. Po celou historii podniku spolupracujeme s umělci, designéry, architekty a módními návrháři a tvoříme tak textil s přidanou estetickou, nadčasovou hodnotou.  
@@ -605,17 +623,6 @@ Ke každé zakoupené designové roušce, věnuji další látkovou zdarma (1+1)
 Webové stránky: [jancodesign.cz](http://www.jancodesign.cz/)
 
 Instagram/Facebook: [renatajanco](https://www.instagram.com/renatajanco)
-
-### DARK / Concept Store
-#### Store s českou a slovenskou designérskou módou a doplňky zaměřený na streetwear a oblečení tmavých barev
-#### Výše ztráty k 31. 3. 2020: 35 000
-
-Forma pomoci: Podpořit nás můžete zakoupením dárkových poukazů v hodnotách 500, 1000 a 2000 Kč a jako poděkování od nás navíc k poukazu dostanete 10% slevu na celý nákup.
-Určitě má někdo z vašich blízkých v budoucích měsících narozeniny a jistě bude mít radost, že jeho dárek znamenal pro jednoho designéra opravdu mnoho. Rádi vám poukaz také dárkově zabalíme do krásné obálky s mašlí.
-
-Webové stránky: [darkstore.cz](https://www.darkstore.cz/)
-
-Instagram/Facebook: [dark_concept_store](https://www.instagram.com/dark_concept_store)/[darkconceptstore](https://www.facebook.com/darkconceptstore/)
 
 ### Mumray
 #### Od roku 2008 vyrábíme zavazadla všeho druhu. Výhradně v Čechách, s úctou k řemeslu a lidské práci a s ohledem na životní prostředí.
@@ -901,9 +908,9 @@ Facebook: [Zualudesign](https://www.facebook.com/Zualudesign)
 
 ### Eliška Lhotská jewellery
 #### šperk
-#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
+#### Výše ztráty k 2. 11. 2020: zatím nevyčísleno
 
-Forma pomoci: Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce dubna využít nejen poštovné ZDARMA, ale i SLEVU 10% po zadání kódu: REKNITOSPERKEM. Díky vaší podpoře dokončíme novinky, které jsme měli v dubnu fotit a znovu rozjet provoz dílny. My děkujeme a vy se opatrujte! ♥
+Forma pomoci: Šperk jako prostředek komunikace. Nositel poselství, výpověď naší generace. Umělecký artefakt, jehož sběratelem může být každý. Pomůžete nám nákupem na e-shopu, kde můžete do konce roku využít poštovné ZDARMA. Díky vaší podpoře znovu rozjedeme provoz dílny naplno. My děkujeme a vy se opatrujte! ♥
 
 Webové stránky: [eliskalhotska.cz](https://www.eliskalhotska.cz/)
 
@@ -1001,6 +1008,16 @@ Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
 
 ## Gastro
 
+### ČILANGO coffee
+#### Pražírna kávy
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Můžete nás podpořit objednávkou naší mexické výběrové kávy - v Praze stále rozvážíme zdarma. Napište nám na Facebooku nebo Instagramu, rádi poradíme s výběrem.
+
+Webové stránky: [cilango.com](http://cilango.com/)
+
+Instagram/Facebook: [kava.cilango]( https://www.instagram.com/kava.cilango/)/[cilango.coffee ](www.facebook.com/cilango.coffee/)
+
 ### Cafe Ebel
 #### Ebel Coffee nabízí v Praze už 24 let tu nejlepší kávu z domácích farem. Otevřeli jsem vůbec první Coffee shop v ČR, podíleli se na kávové kultuře a vychovali nespočet kávových milovníků. 
 #### Výše ztráty k 21. 4. 2020: 150 000
@@ -1049,16 +1066,6 @@ Facebook: [kavarna.frind](https://www.facebook.com/kavarna.frind/)
 Forma pomoci: Pomoci nám můžete zakoupením sypaného čaje. Pokud si jej nebudete přát vyzvednout osobně, můžete si jej nechat doručit poštou a my vám poštovné nebudeme účtovat.
 
 Webové stránky: [hakuho.cz](https://www.hakuho.cz/eshop)
-
-### ČILANGO coffee
-#### Pražírna kávy
-#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Můžete nás podpořit objednávkou naší mexické výběrové kávy - v Praze rozvážíme zdarma (www.facebook.com/cilango.coffee)
-
-Webové stránky: [cilango.com](http://cilango.com/)
-
-Instagram/Facebook: [kava.cilango]( https://www.instagram.com/kava.cilango/)/[cilango.coffee ](www.facebook.com/cilango.coffee/)
 
 ### Chuť Moravy
 #### Výroba a prodej zapomenutých delikates
@@ -1174,6 +1181,16 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 
 ## Domov & design
+
+### keramik.ART.studio
+#### prodej autorských originálů na e-shopu
+#### Výše ztráty k 2. 11. 2020: odhadem zatím 350000
+
+Forma pomoci: nákup na e-shopu velmi pomůže překonat náklady vynaložené na nákup látek z ledna a února, kdy jsme ještě úplně netušili co se na nás připravuje. Hedvábí je vhodné jako dárek a od 1000Kč poštovné zdarma. 
+
+Webové stránky: [keramikartstudio.cz](https://keramikartstudio.cz)
+
+Instagram/Facebook: [keramikartstudio](https://www.instagram.com/keramikartstudio)/[keramikartstudio](https://www.facebook.com/keramikartstudio/)
 
 ### SUPERMARKET WC
 #### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
@@ -1451,16 +1468,6 @@ Webové stránky: [keramika-andreas.cz](https://www.keramika-andreas.cz/)
 
 Instagram/Facebook: [andreaskeramika](https://www.instagram.com/andreaskeramika/)/[andreaskeramika](https://www.facebook.com/andreasvotice)
 
-### keramik.ART.studio
-#### prodej autorských originálů na e-shopu
-#### Výše ztráty k 30. 3. 2020: odhadem zatím 30.000Kč
-
-Forma pomoci: nákup na e-shopu velmi pomůže překonat náklady vynaložené na nákup látek z ledna a února, kdy jsme ještě úplně netušili co se na nás připravuje. Hedvábí je vhodné jako dárek a od 1000Kč poštovné zdarma. 
-
-Webové stránky: [keramikartstudio.cz](https://keramikartstudio.cz)
-
-Instagram/Facebook: [keramikartstudio](https://www.instagram.com/keramikartstudio)/[keramikartstudio](https://www.facebook.com/keramikartstudio/)
-
 ### NALEJTO ceramic design
 #### Trojice designérek – Markéta Kalivodová, Lucie Vostalová a Lenka Záhorková, které se zabývají převážně užitým porcelánem, ale i volnými objekty
 #### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
@@ -1558,6 +1565,36 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Neposer se
+#### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
+#### Výše ztráty k 2. 11. 2020: 50000+
+
+Forma pomoci: Budeme moc rádi, když nás podpoříte nákupem knihy, workshopu anebo konzultací. Máme pro všechny SLEVU 15% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
+
+Webové stránky: [neposerse.cz](https://neposerse.cz/)
+
+Instagram/Facebook: [neposerse](https://www.instagram.com/neposerse/)/[neposerse](https://facebook.com/neposers/)
+
+### Poketo nakladatelství / Martina Hamouzová
+#### Jsme tři matky, které vytváříme to, co nám chybí: miniknihy, vzdělávací materiály zejména k učení české abecedy a kreativní sety pro děti. Podporujeme učení hrou a kreativitu. Náš styl je esteticky jednoduchý, srozumitelný pro děti. Vyrábíme v Česku.  
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Chcete-li nám pomoci, budeme rády za každý nákup na našem e-shopu https://poketo.cz/ 
+
+Webové stránky: [poketo.cz](https://www.poketo.cz)
+
+Instagram/Facebook: [poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)/[poketo_nakladatelstvi](https://www.facebook.com/poketo_nakladatelstvi)
+
+### Kartotéka
+#### Papírnictví inspirované designem z celého světa, nabízíme výběr produktů pocházející z malých tokijských studií až po tradiční, dlouho zavedené evropské značky.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčísleno
+
+Chystáme kamenný obchůdek, jehož otevření nám bohužel zkomplikovala vládní opatření. Na každého, kdo do té doby, než bude možno otevřít, provede objednávku v eshopu bude čekat v kamenném obchůdku sleva 20% na celý nákup! Děkujeme za jakýkoliv malý nákup a těšíme se, až se potkáme! 
+
+Webové stránky: [kartoteka.store](https://kartoteka.store/)
+
+Instagram: [kartoteka_store](https://www.instagram.com/kartoteka_store/)
+
 ### Polagraph
 #### Analogová a polaroidová fotografie, vyvolávání fotografických filmů, ručně dělaná fotoalba, repasované vintage fotoaparáty na film i na Polaroid. 
 #### Výše ztráty k 2. 11. 2020: 1000000
@@ -1639,16 +1676,6 @@ Webové stránky: [loono.cz](https://www.loono.cz/)
 
 Instagram/Facebook: [loonocz](https://www.instagram.com/loonocz/)/[loonocz](https://www.facebook.com/loonocz/)
 
-### Neposer se
-#### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
-#### Výše ztráty k 14. 4. 2020: 50000+
-
-Forma pomoci: Budeme moc rádi, když nás podpoříte nákupem knihy, workshopu, konzultace anebo lekcí přízvuků AJ.  Máme pro všechny SLEVU 15% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
-
-Webové stránky: [neposerse.cz](https://neposerse.cz/)
-
-Instagram/Facebook: [neposerse](https://www.instagram.com/neposerse/)/[neposerse](https://facebook.com/neposers/)
-
 ### Blooming 
 #### Jsme kreativní květinové studio v centru Dejvic, které staví na 20-ti leté zkušenosti. Zaměřujeme se na profesionální vazbu květin, neotřelé dekorace, a především na svatební floristiku. 
 #### Výše ztráty k 5. 4. 2020: zatím nevyčíslena
@@ -1669,17 +1696,6 @@ Forma pomoci: Při koupi produktů nad 500 Kč poštovné zdarma + malý dárek 
 Webové stránky: [panoply.cz](https://panoply.cz/)
 
 Instagram/Facebook: [Panoply.cz](https://www.instagram.com/Panoply.cz)/[panoply.cz](www.facebook.com/Panoply.cz)
-
-### Poketo nakladatelství / Martina Hamouzová
-#### Jsme tři matky, které vytváříme to, co nám chybí: miniknihy, vzdělávací materiály zejména k učení české abecedy a kreativní sety pro děti. Podporujeme učení hrou a kreativitu. Náš styl je esteticky jednoduchý, srozumitelný pro děti. Vyrábíme v Česku.  
-#### Výše ztráty k 3. 4. 2020: Desetitisíce
-
-Forma pomoci: Velmi nám pomůžete, pokud si objednáte naše zboží v e-shopu. Dosud jsme se zaměřovaly hlavně na osobní prodej na knižních a designových trzích, v mnohem menší míře online. Vzhledem k tomu, že nyní již pět plánovaných akcí bylo zrušeno a prodejny jsou uzavřené, závisíme na prodeji online. 
-Protože se oplátkou snažíme ulehčit rodinám doma, nabízíme týdně jeden kreativní list k stažení zdarma z našeho webu. Berte to jako dárek od nás pro ty, kteří chtějí kreativně zabavit děti v karanténě.  
-
-Webové stránky: [poketo.cz](https://www.poketo.cz)
-
-Instagram/Facebook: [poketo_nakladatelstvi](https://www.instagram.com/poketo_nakladatelstvi)/[poketo_nakladatelstvi](https://www.facebook.com/poketo_nakladatelstvi)
 
 ### Q U B U S
 #### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
@@ -1740,19 +1756,6 @@ Podpořit nás můžete tím, že donesete našité roušky (a my zajistíme jej
 Webové stránky: [institutmodnitvorby.cz](https://institutmodnitvorby.cz/)
 
 Instagram/Facebook: [institutmodnitvorby](https://www.instagram.com/institutmodnitvorby/?hl=cs)/[Institut modni tvorby]( https://www.facebook.com/Institut-m%C3%B3dn%C3%AD-tvorby-209892342373645/)
-
-### Kartotéka
-#### Papírnictví inspirované designem z celého světa, nabízíme výběr produktů pocházející z malých tokijských studií až po tradiční, dlouho zavedené evropské značky.
-#### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
-
-V době celostátní karantény (zatím vyhlášené do 1. dubna) nabízíme slevu 25 % pro všechny, kdo budou souhlasit s doručením balíčku po jejím uplynutí. 
-Balíčky je možné expedovat i standardně, pokud někdo spěchá například na dárek. Na takové nákupy však akce neplatí - ale můžete zkusit kód #malynakupvelkapomoc, za který dostanete 10% slevu na nákup a odeslání ihned. 
-
-Děkujeme moc a moc, všem přejeme pevné zdraví! Lenka & Petr
-
-Webové stránky: [kartoteka.store](https://kartoteka.store/)
-
-Instagram: [kartoteka_store](https://www.instagram.com/kartoteka_store/)
 
 ### young_block
 #### Polygrafie a knihařská činnost
