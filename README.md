@@ -1171,6 +1171,16 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### TAK TO BYLO / umělecko-sociální projekt
+#### TAK TO BYLO je umělecko-sociální projekt Lenky Záhorkové. Spolupracuje se seniory, které vybízí k ilustrování jejich životních příběhů a vzpomínek. Ilustrace, zachycující osobní výpovědi, zásadní životní situace a vzpomínky, jsou přeneseny na odpadové porcelánové nádobí. Porcelán, který se běžně dědí z pokolení na pokolení, zde slouží jako médium pro mezigenerační komunikaci. Celý projekt nese myšlenky o hodnotách, které přináší stáří.
+#### Výše ztráty k 2. 10. 2020: zatím nevyčíslena
+
+Forma pomoci:"Koupí produktů vzniklých v projektu podporuješ babičky - autorky ilustrací, revitalizaci služby tísňové péče a senior telefon Života 90, a provoz a pokračování projektu TAK TO BYLO."
+
+Webové stránky: [taktobylo.com](http://www.taktobylo.com/)
+
+Instagram/Facebook: [taktobyloprojekt](https://www.instagram.com/taktobyloprojekt/)/[taktobyloprojekt](https://www.facebook.com/taktobyloprojekt/)
+
 ### RostoucíNábytek.com
 #### Prodej rostoucího nábytku pro děti v e-shopu a na showroomu.
 #### Výše ztráty k 3. 7. 2020: Nelze přesně odhadnout. Snížení zájmu o prohlídky na showroomu je citelné.
