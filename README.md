@@ -11,6 +11,20 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### Brašnářství Lukáš Ardolf
+#### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: "Tak samozřejmě nákupem již hotového výrobku z mé nabídky :-) na - http://ardolflukas.cz/eshop/produkty
+
+. Každopádně budu rád i za nové fanoušky na mém FB - www.facebook.com/ardolf.lukas.cz
+či www.instagram.com/brasnarstvi_ardolf_lukas/
+
+Webové stránky: [ardolflukas.cz](http://ardolflukas.cz/)
+
+Instagram/Facebook: [brasnarstvi_ardolf_lukas](https://www.instagram.com/brasnarstvi_ardolf_lukas/)/[ardolf.lukas.cz](https://www.facebook.com/ardolf.lukas.cz)
+
+
 ### No!Madame
 #### Oblečení pro všechny milovníky motorek, piva, rock'n'rollu a potetovaných holek.
 #### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
@@ -519,19 +533,6 @@ Děkujeme a těšíme se na viděnou!!!
 Webové stránky: [parazit.cz](http://www.parazit.cz/)
 
 Facebook: [FashionshopParazit](https://www.facebook.com/FashionshopParazit/)
-
-### Brašnářství Lukáš Ardolf
-#### VÝROBA a opravy BRAŠNÁŘSKÉHO ZBOŽÍ z pravé KŮŽE (žádná koženka či jiné "netrvanlivé" směsy)... peněženky, opasky, náramky, brašny, kabelky, měšce, motýlky, pouzdra... všechno možné a někdy i nemožné :-)  
-#### Výše ztráty k 2. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: "Tak samozřejmě nákupem již hotového výrobku z mé nabídky :-) na - http://ardolflukas.cz/eshop/produkty
-
-Nebo si můžete na základě mé nabídky vymyslet svůj vlastní originální kousek a vyrobím Vám jej na přání... (ideální komunikační kanál - FB - viz níže). Každopádně budu rád i za nové fanoušky na mém FB - www.facebook.com/ardolf.lukas.cz
-či www.instagram.com/brasnarstvi_ardolf_lukas/
-
-Webové stránky: [ardolflukas.cz](http://ardolflukas.cz/)
-
-Instagram/Facebook: [brasnarstvi_ardolf_lukas](https://www.instagram.com/brasnarstvi_ardolf_lukas/)/[ardolf.lukas.cz](https://www.facebook.com/ardolf.lukas.cz)
 
 ### Utopy wear
 #### Navrhujeme, šijeme a prodáváme lokální oblečení.
