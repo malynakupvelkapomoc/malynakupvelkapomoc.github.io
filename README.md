@@ -11,25 +11,198 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
-### Patrick Poppet
-#### | Neděláme kabelky, tvoříme poppetky |
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
+### Buffet
+#### Navrhovanie a tvorba dámskej a pánskej módy
+#### Výše ztráty k 2. 11. 2020: 100 000
 
-Forma pomoci: Nákupem produktů nebo voucheru přes e-shop. Doručení v rámci České a Slovenské republiky je zdarma. Potěší také sdílení a lajkování příspěvků na sociálních sítích ;-). Děkujeme!
+Forma pomoci: Urobte si radosť nákupom cez náš eshop - poštovné máte zdarma a po zadaní kódu #malynakupvelkapomoc dostanete 10% zľavu na všetky produkty ako poďakovanie za vašu podporu.
 
-Webové stránky: [patrickpoppet.cz](https://www.patrickpoppet.cz/)
+Webové stránky: [buffetclothing.com](https://www.buffetclothing.com/)
 
-Instagram/Facebook: [patrickpoppetprague](https://www.instagram.com/patrickpoppetprague)/[PatrickPoppetPrague](https://www.facebook.com/PatrickPoppetPrague)
+Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)/[buffetclothing](https://www.facebook.com/BuffetClothing/)
 
-### BEK•BEK
-#### BEK•BEK jsou upcyklované batohy z odřezků stínících rolet, které vznikají při výrobě a dále by se nevyužily. Celý proces od návrhu po realizaci probíhá v Olomouci.
-#### Výše ztráty k 23. 10. 2020: zatím nevyčíslena
+### Harddecore / Josefina Bakošová
+#### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
+#### Výše ztráty k 2. 11. 2020: 350 000
 
-Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu, proto teď máte poštovné zdarma na všechny batohy. Děkujeme, že nás podpoříte touto online cestou, brzo se uvidíme zase naživo v designových obchodech :)
+Forma pomoci: Nákup přes e-shop nebo sociální sítě
 
-Webové stránky: [bekbek.cz](http://www.bekbek.cz)
+Webové stránky: [harddecore.com](https://www.harddecore.com/)
 
-Instagram/Facebook: [bekbek.cz](https://www.instagram.com/bekbek.cz/)/[bekbek.cz](https://www.facebook.com/bekbek.cz/)
+Instagram/Facebook: [josefinabakosova](https://www.instagram.com/josefinabakosova)
+
+### Linky Fashion
+#### Nevíme, jak se situace dále pro nás vyvine, takže budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení nebo dárkovým poukazem s roční platností pro své známé a blízké. Mám DOPRAVU ZDARMA při koupi nad 2 500 Kč. Děkuji moc! 
+#### Výše ztráty k 2. 11. 2020: 50000
+
+Forma pomoci: Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
+Pokud se budete chtít se mnou poradit před samotným nákupem, tak mě určitě můžete kontaktovat i na soc.sítích IG/FB. Ráda vám poradím. Držte se a přeji všem pevné zdraví. #spolecnetozvladneme
+
+Webové stránky: [linkyfashion.eu](https://www.linkyfashion.eu)
+
+Facebook/Instagram: [Linky Fashion]( https://www.facebook.com/LinkyFashion/)/[linkyfashion](https://www.instagram.com/linkyfashion/)
+
+### 100CLASS concept store
+#### obchod zaměřený na lokální módu a design
+#### Výše ztráty k 2. 11. 2020: zatím nevyčísleno
+
+Forma pomoci: Budeme rádi za každý drobný nákup na e-shopu, i ten je v současné době velká pomoc. Dopravné je na všechny objednávky zdarma.
+
+Webové stránky: [stoclass.com](https://www.stoclass.com)
+
+Instagram/Facebook: [100CLASS_concept_store](https://www.instagram.com/100class_concept_store/?hl=cs)/[stoclass](https://www.facebook.com/stoclass/)
+
+### Dandylion
+#### Má maličká značka šperků Dandylion vznikla skoro před pěti lety, od té doby dělám radost Vám i Vašim blízkým výrobou květinových šperků. V současnosti zaznamenávám pokles objednávek na e-shopu a podle všeho se dlouho nebudou konat různé designové markety, které jsou důležitým zdrojem mých příjmů. Pokles tedy bude zřejmě dlouhodobý.
+#### Výše ztráty k 2. 11. 2020: 200 000
+
+Forma pomoci: Budu moc ráda, když se podíváte ke mně na e-shop a potěšíte sebe nebo někoho ze svých blízkých některou z květinových půvabností. Anebo se třeba zmiňte přátelům. Děkuji, Katka ✽
+
+Webové stránky: [dandylion.cz](https://www.dandylion.cz/)
+
+Instagram/Facebook: [dandylion.cz](https://www.instagram.com/dandylion.cz)/[dandylion.cz](https://www.facebook.com/dandylion.cz/)
+
+### TEABAG
+#### Designové kabelky a batohy z čalounického odpadu. V TEABAGu se snoubí skvělá myšlenka s krásným designem. Každý kus je vyrobený na míru zbytkovému materiálu tak, aby se minimalizoval odpad. Omezené množství materiálu dává jedinečnost a originalitu každému kusu.
+#### Výše ztráty k 2. 11. 2020: 70000
+
+Forma pomoci: Pomůže jakákoliv objednávka :). Nabízím zakázkovou výrobu tašek a batohů. Můžete si vybrat z pěti modelů a barevnost si sami vybrat z právě dostupných materiálů podle toho, který k vám nejvíce sedne. Stačí zavolat a vše s vámi ráda proberu. Navíc teď neúčtuji poštovné.
+
+Webové stránky: [teabag.cz](http://www.teabag.cz/)
+
+Instagram/Facebook: [teabag.cz](https://www.instagram.com/teabag.cz)/[teabag.cz](https://www.facebook.com/pg/teabag.cz/shop/)
+
+### ELAJEIOVA
+#### Výrábím kožené tašky, kožené doplňky.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Připravila jsem pro Vás peněženky v nových barevných odstínech a nový typ crossbody kabelky. Ke každému produktu dostanete malou kresbu na pohlednici, pro radost Vám, nebo poslání radosti někomu dál. Opatrujte se a buďte zdraví!
+
+Webové stránky: [elajediova.com](https://www.elajediova.com/)
+
+Instagram: [elajediova](https://www.instagram.com/elajediova/)
+
+### Prague tailor
+#### Módní návrhářka tvořící slow fashion na míru. Tři roky tvořím designové pánské košile a půl roku pod značkou Petra Györgyová fashion brand vznikají limitované kolekce dámských šatů, overalů, košil a kabátů. Najdete mě v Showroomu Londýnská 38.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Individuální schůzky pro šití košil na míru mohou probíhat v bezpečí showroomu nadále. Podpoříte nás i nákupem šitých roušek, business sadou dvou roušek a ručně šitého kapesníčku do saka nebo nákupem voucheru v hodnotě od 1000 Kč. Rozvor v rámci Prahy zdarma. Děkujeme!
+
+Webové stránky: [prague-tailor.cz](http://prague-tailor.cz/)
+
+Instagram: [prague_tailor](https://www.instagram.com/prague_tailor/),[petra_gyorgyova_fashion](https://www.instagram.com/petra_gyorgyova_fashion/)
+
+### Kristýna Malovaná jewellery
+#### výroba šperků a design produktů, interiérů a instalací
+#### Výše ztráty k 2. 11. 2020: 40000
+
+Forma pomoci: Pomoci můžete nákupem přes eshop, kde jsou k dispozici i dárkové poukázky. Dále pak zakázkovou výrobou šperků na míru ( zásnubní i snubní prsteny, medailonek atp.) 
+Moc si Vaší pomoci vážím! Děkuji a přeji hodně zdraví všem! Kristýna
+
+Webové stránky: [kristynamalovana.com](https://www.kristynamalovana.com/)
+
+Facebook: [Kristýna Malovaná jewellery](https://www.facebook.com/Krist%C3%BDna-Malovan%C3%A1-jewellery-1530537500581713/)
+
+### Showroom.
+#### Sdileny Showroom a prodejna osmi designerů
+#### Výše ztráty k 2. 11. 2020: 300 000
+
+Pomoci nám můžete nákupem na e-shopech všech našich designerů, kterými jsou: Soolista, Klára Šípková jewellery, Optiqa, Eiri, Two Lines, About Leather, Cockerel a Yage Organics. Je taky možný nákup jednotlivých kousků nebo dárkových poukazů Showroom přes náš FB, instagram nebo email. Moc si Vaší pomoci vážíme! Děkujeme a za celý team Showroom přejeme hodně zdraví. 
+
+Webové stránky: [showroomdot.cz](http://showroomdot.cz/)
+
+Instagram/Facebook: [showroomdot](https://www.instagram.com/showroomdot/)[ShowroomDot](https://www.facebook.com/ShowroomDot/)
+
+### Anna Schwitzer
+#### Navrhujeme kolekce ručně vyráběných hedvábných šátků pro každou příležitost
+#### Výše ztráty k 2. 11. 2020: 100000
+
+Forma pomoci: Brzy budeme aktualizovat naši nabídku s novou kolekcí.  Připravili jsme pro Vás poštovné zdarma po celé České republice. Plánujeme také slevy na naše starší kolekce. Budeme vděčni za nákup na našem e-shopu nebo sdílení na Instagramu nebo Facebooku -  #malynakupvelkapomoc . Děkujeme. 
+
+Webové stránky: [annaschwitzer.com](https://www.annaschwitzer.com)
+
+Instagram: [annaschwitzer](https://www.instagram.com/annaschwitzer/)
+
+### Metráž
+#### Jsme nízkoprahová dílna pro ženy v tísnivé sociální situaci. Spolu s českými designéry tyto ženy vytvářejí designové šperky, doplňky a módu. Naše výrobky prodáváme na designových marketech a v koncept storech a také na našem eshopu. 
+#### Výše ztráty k 2. 11. 2020: 50 000
+
+Forma pomoci: Nákupem některého našeho šperku na našem e-shopu. Dostanou osobní (písemné) poděkování ženy v tísni (pracující u nás v dílně), které šperk vyrobila a která dostane část peněz z jeho prodeje (zbytek putuje na provoz dílny a materiál). 
+
+Webové stránky: [metrazdesign.cz](https://metrazdesign.cz/)
+
+Instagram: [metrazdeisgn](https://www.instagram.com/metrazdesign/)
+
+### je tu milo
+#### malý dárek, velká radost... Přinášíme vám originální výrobky od českých a slovenských designérů, tvůrců a lokálních firem. Kousky s příběhem a duší, které si zamilujete.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena 
+
+Forma pomoci: I malý nákup pomůže nejen nám, ale především našim českým designérům, tvůrcům a malým českým rodinným firmám. Velká část zisku jde totiž právě k nim. 
+
+Webové stránky: [jetumilo.cz](https://www.jetumilo.cz/)
+
+Instagram/Facebook: [jetuMILO](https://www.instagram.com/jetuMILO/)/[jetumilo](https://www.facebook.com/jetumilo/)
+
+
+### COURAGE
+#### koncept store zaměřený na české návrháře a designery
+#### Výše ztráty k 2. 11. 2020: 40000
+
+Forma pomoci: Na valnou část zboží je dána sleva 10-20% ~ produkty lze zamlouvat přes instagram a facebook ~ případně je velkou pomocí i nákup dárkových poukázek. 
+
+Webové stránky: [courage.cz](https://www.courage.cz)
+
+Instagram/Facebook: [courage.zlin](https://instagram.com/courage.zlin/)/[COURAGE](https://m.facebook.com/courage.zlin/)
+
+### Adéla Pečlová
+#### Výroba a prodej šperků, zakázková výroba šperků
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Můžete mě podpořit nákupem šperku z mého atelieru. Ten dostanete zabalený do ručně poskládané krabičky společně s poděkováním a osobním podpisem. Poštovné je zdarma.
+
+Webové stránky: [adelapeclova.cz](https://adelapeclova.cz/)
+
+Instagram/Facebook: [adelapeclova](https://www.instagram.com/adelapeclova/?hl=cs)/[Adéla Pečlová](https://www.facebook.com/peclova/)
+
+### Balkanova 
+#### Dovoz a prodej tkaných vlněných dek, koberců, přehozů, kilimů, látek a jiných doplňků s původem na Balkáně, konkrétně v Bulharsku a Řecku (např. bulharská vína, přírodní kosmetika, apod.). Společnými rysy výrobků jsou přírodní materiály a suroviny, šetrný způsob výroby a velký podíl ruční práce. 
+#### Výše ztráty k 2. 11. 2020: 150000
+
+Forma pomoci: Při uvedení hesla malynakupvelkapomoc do poznámky objednávky poskytneme poštovné zdarma.
+
+Webové stránky: [balkanova.eco](https://balkanova.eco/)
+
+Instagram/Facebook: [balkanova_eco](https://www.instagram.com/balkanova_eco/) [balkanova]( https://www.facebook.com/vlnene.deky/)
+
+### Tereza Rosalie Kladošová
+#### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
+#### Výše ztráty k 2. 11. 2020: 280000
+
+Pomoci můžete nákupem oděvu. Pokud si nevyberete z nabídky můžeme se domluvit na zakázkové výrobě nebo voucheru. Zatím nemám e-shop, ale ráda vám pošlu katalog. Kontaktujte mne na hello@terezarosaliekladosova.cz, Instagramu nebo Facebooku. Jako poděkování nabízím poštovné zdarma.
+
+Webové stránky: [terezarosaliekladosova.cz](http://terezarosaliekladosova.cz/)
+
+Instagram/Facebook: [terezarosaliekladosova](https://www.instagram.com/terezarosaliekladosova/?hl=cs)[Tereza Rosalie Kladosova](https://www.facebook.com/terezarosaliekladosova/) 
+
+### TAM ARA
+#### TAM ARA je pražská značka, ktorá vyrába dámsku minimalistickú módu do práce a na voľný čas strávený v meste. Šijeme v Prahe a len z prírodných materiálov, najradšej pracujeme s vlnou. Tvoríme limitované kolecie, ale aj zakázky na mieru.
+#### Výše ztráty k 1. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Blíži sa zima a ako tradične máme skladom niekoľko nádherných vlnených a kašmírových šál, ktoré by sme za normálnych okolností predávali na špecializovaných vianočných trhoch. Nákupom takej šály urobíte veľkú radosť sebe, alebo niekomu, koho ňou obdarujete a nám takisto. Poštovné a rúško vždy zdarma k objednávke :)
+
+Webové stránky: [tam-ara.cz](http://www.tam-ara.cz/)
+
+Instagram: [tam_ara_cz](https://www.instagram.com/tam_ara_cz/)
+
+### Dream handmade
+#### Vyrábím šperky a módní doplňky historickou technikou Chainmaille neboli Kroužkování. Používám kvalitní materiály, které nemění svou barvu a jsou vhodné pro alergiky.
+#### Výše ztráty k 29. 10. 2020: 10000
+
+Forma pomoci: Každý sebemenší nákup mi udělá velkou radost. Při nákupu nad 1000 na mém eshopu máte poštovné zdarma.
+
+Webové stránky: [dreamhandmade.eu](https://dreamhandmade.eu/)
+
+Instagram/Facebook: [dream_handmade_](https://www.instagram.com/dream_handmade_/ )/[Dream Handmade Chainmaille](https://www.facebook.com/DreamHandmadeChainmaille/)
 
 ### Opasky Fiala
 #### Vyrábím pánské i dámské kožené opasky.
@@ -40,6 +213,36 @@ Forma pomoci: 30 let dělám kožené opasky.Teď je nemám kde prodávat. Pouze
 Webové stránky: [www.opaskyfiala.cz](https://www.opaskyfiala.cz/)
 
 Facebook: [opaskyfiala](https://www.facebook.com/opaskyfiala/)
+
+### Patrick Poppet
+#### | Neděláme kabelky, tvoříme poppetky |
+#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem produktů nebo voucheru přes e-shop. Doručení v rámci České a Slovenské republiky je zdarma. Potěší také sdílení a lajkování příspěvků na sociálních sítích ;-). Děkujeme!
+
+Webové stránky: [patrickpoppet.cz](https://www.patrickpoppet.cz/)
+
+Instagram/Facebook: [patrickpoppetprague](https://www.instagram.com/patrickpoppetprague)/[PatrickPoppetPrague](https://www.facebook.com/PatrickPoppetPrague)
+
+### .about leather.
+#### MINIMALISMUS.NADČASOVOST.MINI SÉRIE. Výrobky .about leather. jsou vyrobeny v České republice, v Praze. Jedná se o ruční práci, každý výrobek je vyroben s úctou a láskou k řemeslu a je tím pádem originál. Pracuji s velmi kvalitní kůží z Itálie, konkrétně z Toskánska. 
+#### Výše ztráty k 2. 10. 2020: zatím nevyčíslena
+
+Forma pomoci: Celý listopad a prosinec bude v rámci ČR a SR doprava zdarma + malý dárek. Děkuji za podporu.
+
+Webové stránky: [aboutleather.cz](https://www.aboutleather.cz)
+
+Instagram: [about.leather](https://www.instagram.com/about.leather/)
+
+### BEK•BEK
+#### BEK•BEK jsou upcyklované batohy z odřezků stínících rolet, které vznikají při výrobě a dále by se nevyužily. Celý proces od návrhu po realizaci probíhá v Olomouci.
+#### Výše ztráty k 2. 10. 2020: zatím nevyčíslena
+
+Forma pomoci: Nejvíce nás podpoříte nákupem na našem e-shopu, proto teď máte poštovné zdarma na všechny batohy. Děkujeme, že nás podpoříte touto online cestou, brzo se uvidíme zase naživo v designových obchodech :)
+
+Webové stránky: [bekbek.cz](http://www.bekbek.cz)
+
+Instagram/Facebook: [bekbek.cz](https://www.instagram.com/bekbek.cz/)/[bekbek.cz](https://www.facebook.com/bekbek.cz/)
 
 ### wowdoplnky.cz
 #### Online prodej společenských doplňků na svatbu, ples a podobné společenské události. Jsou to především kravaty, motýlky, kšand apod. ale i šperky, kabelky, peněženky atd. Doplňky jsou z 99% od českých dodavatelů a výrobců.
@@ -104,16 +307,6 @@ Webové stránky: [benet-ponozky.cz](http://www.benet-ponozky.cz/)
 
 Instagram/Facebook: [benet_cesky_vyrobce_ponozek](https://www.instagram.com/benet_cesky_vyrobce_ponozek/ )/[benet ponozky](https://www.facebook.com/benetponozky/)
 
-### Dream handmade
-#### Vyrábím šperky a módní doplňky historickou technikou Chainmaille neboli Kroužkování. Používám kvalitní materiály, které nemění svou barvu a jsou vhodné pro alergiky.
-#### Výše ztráty k 22. 4. 2020: 10000
-
-Forma pomoci: Každý sebemenší nákup mi udělá velkou radost. Při nákupu nad 1000 na mém eshopu máte poštovné zdarma.
-
-Webové stránky: [dreamhandmade.eu](https://dreamhandmade.eu/)
-
-Instagram/Facebook: [dream_handmade_](https://www.instagram.com/dream_handmade_/ )/[Dream Handmade Chainmaille](https://www.facebook.com/DreamHandmadeChainmaille/)
-
 ### Bass Portal
 #### Poskytujeme hudební služby a prodáváme hudební merchendise.
 #### Výše ztráty k 22. 4. 2020: desetitisíce
@@ -173,16 +366,6 @@ Forma pomoci: Můžete si koupit online voucher na nákup oblečení, ke kterém
 Webové stránky: [momentvkarantene.cz](http://www.momentvkarantene.cz/)
 
 Instagram/Facebook: [moment.praha](https://www.instagram.com/moment.praha/)/[momentprahaops](https://www.facebook.com/momentprahaops)
-
-### TEABAG
-#### Designové kabelky a batohy z čalounického odpadu. V TEABAGu se snoubí skvělá myšlenka s krásným designem. Každý kus je vyrobený na míru zbytkovému materiálu tak, aby se minimalizoval odpad. Omezené množství materiálu dává jedinečnost a originalitu každému kusu.
-#### Výše ztráty k 29. 10. 2020: 70000
-
-Forma pomoci: Pomůže jakákoliv objednávka :). Nabízím zakázkovou výrobu tašek a batohů. Můžete si vybrat z pěti modelů a barevnost si sami vybrat z právě dostupných materiálů podle toho, který k vám nejvíce sedne. Stačí zavolat a vše s vámi ráda proberu. Navíc teď neúčtuji poštovné.
-
-Webové stránky: [teabag.cz](http://www.teabag.cz/)
-
-Instagram/Facebook: [teabag.cz](https://www.instagram.com/teabag.cz)/[teabag.cz](https://www.facebook.com/pg/teabag.cz/shop/)
 
 ### MontMat
 #### Za značkou MontMat stojí dílna Dany Crlíkové, která svoji vášeň pro kůži a kožedělné výrobky přenáší do ruční výroby elegantních kožených kabelek, tašek a kožených módních doplňků.
@@ -285,16 +468,6 @@ Webové stránky: [vikamayzel.com](https://www.vikamayzel.com//)
 
 Instagram: [vikamayzel](https://www.instagram.com/vikamayzel)
 
-### je tu milo
-#### malý dárek, velká radost... Přinášíme vám originální výrobky od českých a slovenských designérů, tvůrců a lokálních firem. Kousky s příběhem a duší, které si zamilujete.
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena 
-
-Forma pomoci: I malý nákup pomůže nejen nám, ale především našim českým designérům, tvůrcům a malým českým rodinným firmám. Velká část zisku jde totiž právě k nim. 
-
-Webové stránky: [jetumilo.cz](https://www.jetumilo.cz/)
-
-Instagram/Facebook: [jetuMILO](https://www.instagram.com/jetuMILO/)/[jetumilo](https://www.facebook.com/jetumilo/)
-
 ### FashionShop PARAZIT
 #### Jsme Váš lokální obchod v centru Prahy. Prodáváme současný česko-slovenský design, módu, doplňky, šperky i užité umění za dostupné ceny. Spolupracujeme se studenty a mladými návrháři a již 15 let nabízíme domácí alternativu ke komerčním zahraničným značkám. 
 #### Výše ztráty k 3. 4. 2020: zatím nevyčíslena
@@ -360,16 +533,6 @@ Webové stránky: [emhandmade.cz](https://www.emhandmade.cz/)
 
 Facebook: [emhandmadefashion](https://www.facebook.com/emhandmadefashion/)
 
-### ELAJEIOVA
-#### Výrábím kožené tašky, kožené doplňky.
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Připravila jsem pro Vás peněženky v nových barevných odstínech a nový typ crossbody kabelky. Ke každému produktu dostanete malou kresbu na pohlednici, pro radost Vám, nebo poslání radosti někomu dál. Opatrujte se a buďte zdraví!
-
-Webové stránky: [elajediova.com](https://www.elajediova.com/)
-
-Instagram: [elajediova](https://www.instagram.com/elajediova/)
-
 ### Girls Without Clothes s.r.o.
 #### Prodej a výroba lokálního oblečení
 #### Výše ztráty k 1. 4. 2020: 150000
@@ -401,16 +564,6 @@ Webové stránky: [jancodesign.cz](http://www.jancodesign.cz/)
 
 Instagram/Facebook: [renatajanco](https://www.instagram.com/renatajanco)
 
-### Dandylion
-#### Má maličká značka šperků Dandylion vznikla skoro před pěti lety, od té doby dělám radost Vám i Vašim blízkým výrobou květinových šperků. V současnosti zaznamenávám pokles objednávek na e-shopu a podle všeho se dlouho nebudou konat různé designové markety, které jsou důležitým zdrojem mých příjmů. Pokles tedy bude zřejmě dlouhodobý.
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Budu moc ráda, když se podíváte ke mně na e-shop a potěšíte sebe nebo někoho ze svých blízkých některou z květinových půvabností. Anebo se třeba zmiňte přátelům. Děkuji, Katka ✽
-
-Webové stránky: [dandylion.cz](https://www.dandylion.cz/)
-
-Instagram/Facebook: [dandylion.cz](https://www.instagram.com/dandylion.cz)/[dandylion.cz](https://www.facebook.com/dandylion.cz/)
-
 ### DARK / Concept Store
 #### Store s českou a slovenskou designérskou módou a doplňky zaměřený na streetwear a oblečení tmavých barev
 #### Výše ztráty k 31. 3. 2020: 35 000
@@ -431,16 +584,6 @@ Forma pomoci: Nákupem na našem eshopu. Případně zakoupením poukazu do naš
 Webové stránky: [mumray.cz](https://mumray.cz/)
 
 Instagram/Facebook: [mum.ray](https://www.instagram.com/mum.ray)/[mum.ray](https://www.facebook.com/mum.ray/)
-
-### Anna Schwitzer
-#### Navrhujeme kolekce ručně vyráběných hedvábných šátků pro každou příležitost
-#### Výše ztráty k 29. 10. 2020: 100000
-
-Forma pomoci: Brzy budeme aktualizovat naši nabídku s novou kolekcí.  Připravili jsme pro Vás poštovné zdarma po celé České republice. Plánujeme také slevy na naše starší kolekce. Budeme vděčni za nákup na našem e-shopu nebo sdílení na Instagramu nebo Facebooku -  #malynakupvelkapomoc . Děkujeme. 
-
-Webové stránky: [annaschwitzer.com](https://www.annaschwitzer.com)
-
-Instagram: [annaschwitzer](https://www.instagram.com/annaschwitzer/)
 
 ### Šárka Strnadová
 #### Značku pod svým jménem jsem založila před asi 3 lety. Dvakrát ročně vytvářím dámské ready-to-wear kolekce. Minimalistické kousky na běžné nošení i na večer šiji z kvalitních materiálů, převážně z bavlny, vlny a hedvábí. Záleží mi na pohodlí mých klientek, ale zároveň chci, aby se v oděvech cítily žensky, elegantně i sexy. Věnuji se také dámské a pánské zakázkové výrobě. Ženy si objednávají převážně svatební a plesové šaty, ale i modely na běžné nošení. Lze si u mě objednat stylingové služby jako Refreš šatníku nebo Nákupy se stylistkou. Více informací najdete na mém webu.
@@ -484,17 +627,6 @@ Webové stránky: [raprap.cz](https://www.raprap.cz/)
 
 Instagram: [raponetwo](https://www.instagram.com/raponetwo/)
 
-### Linky Fashion
-#### V této době šiji roušky a zadarmo je daruji do zdravotnických zařízení a domovů důchodců. Za dobu 2 týdnů jsme jich se skupinkou vietnamských švadlenek darovaly přes 2000 ks. Nyní potřebuji pomoc i já. Prodávám dámské stylové oblečení, které jsem osobně vybírala v zahraničí a ujistila se o jeho kvalitě. Je vhodné pro běžné i formální nošení. Cílem je, aby se každá žena cítila sebevědomě a pohodlně v tom, co nosí. Moc mi pomůžete, když podpoříte můj e-shop, abych si nemusela hledat jinou práci, protože obchůdek s oblečením byl vždy můj sen.
-#### Výše ztráty k 30. 3. 2020: 30000
-
-Forma pomoci: Budu vám velmi vděčná, pokud mé podnikání podpoříte zakoupením oblečení z e-shopu nebo dárkovým poukazem s roční platností. Mám DOPRAVU ZDARMA na vše bez omezení a právě mám novou kolekci SS2020, která vám může udělat radost v tomto krizovém období. 
-Pokud se budete chtít se mnou poradit před samotným nákupem, tak mě určitě můžete kontaktovat i na soc.sítích IG/FB. Ráda vám poradím. Držte se a přeji všem pevné zdraví. #spolecnetozvladneme
-
-Webové stránky: [linkyfashion.eu](https://www.linkyfashion.eu)
-
-Facebook/Instagram: [Linky Fashion]( https://www.facebook.com/LinkyFashion/)/[linkyfashion](https://www.instagram.com/linkyfashion/)
-
 ### Live Sweaters
 #### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Pro toto období doporučujeme basic trika z merino vlny a funkční merino ponožky s protiklíšťovou úpravou (jestli máte možnost vyrazit třeba na zahradu). Díky benefitům merino vlny naše produkty dlouho vydrží a nemusíte je tak často prát. Vše vyrábíme v Čechách.
 #### Výše ztráty k 30. 3. 2020: 30000+
@@ -514,25 +646,6 @@ Forma pomoci: Nákupem dárkových poukázek nebo oblečení přes stránky fb, 
 Webové stránky: [sweet666design.cz](http://sweet666design.cz/)
 
 Instagram/Facebook: [sweet666design](https://www.instagram.com/sweet666design/)/[sweet666design](https://www.facebook.com/czsweet666design/)
-### .about leather.
-#### MINIMALISMUS.NADČASOVOST.MINI SÉRIE. Výrobky .about leather. jsou vyrobeny v České republice, v Praze. Jedná se o ruční práci, každý výrobek je vyroben s úctou a láskou k řemeslu a je tím pádem originál. Pracuji s velmi kvalitní kůží z Itálie, konkrétně z Toskánska. 
-#### Výše ztráty k 30. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Celý listopad a prosinec bude v rámci ČR a SR doprava zdarma + malý dárek. Děkuji za podporu.
-
-Webové stránky: [aboutleather.cz](https://www.aboutleather.cz)
-
-Instagram: [about.leather](https://www.instagram.com/about.leather/)
-
-### TAM ARA
-#### TAM ARA je pražská značka, ktorá vyrába dámsku minimalistickú módu do práce a na voľný čas strávený v meste. Šijeme v Prahe a len z prírodných materiálov, najradšej pracujeme s vlnou. Tvoríme limitované kolecie, ale aj zakázky na mieru.
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Blíži sa zima a ako tradične máme skladom niekoľko nádherných vlnených a kašmírových šál, ktoré by sme za normálnych okolností predávali na špecializovaných vianočných trhoch. Nákupom takej šály urobíte veľkú radosť sebe, alebo niekomu, koho ňou obdarujete a nám takisto. Poštovné a rúško vždy zdarma k objednávke :)
-
-Webové stránky: [tam-ara.cz](http://www.tam-ara.cz/)
-
-Instagram: [tam_ara_cz](https://www.instagram.com/tam_ara_cz/)
 
 ### Karla Olšáková
 #### Karla je česká šperkařka, která svou značku založila v roce 2011. Věnuje se autorskému šperku, sériové výrobě i práci na zakázku. Značka je charakteriskická minimalistickým designem s důrazem na detail, precizní zpracování a variabilitu. 
@@ -663,26 +776,6 @@ Forma pomoci: Pomoci může koupě on-line, přes FB, Instagram.. Věřím, že 
 
 Instagram/Facebook: [su_vinna](https://www.instagram.com/su_vinna/?hl=cs/)[Vinná](https://www.facebook.com/jsemvinna/)
 
-### COURAGE
-#### koncept store zaměřený na české návrháře a designery
-#### Výše ztráty k 29. 10. 2020: 40000
-
-Forma pomoci: Na valnou část zboží je dána sleva 10-20% ~ produkty lze zamlouvat přes instagram a facebook ~ případně je velkou pomocí i nákup dárkových poukázek. 
-
-Webové stránky: [courage.cz](https://www.courage.cz)
-
-Instagram/Facebook: [courage.zlin](https://instagram.com/courage.zlin/)/[COURAGE](https://m.facebook.com/courage.zlin/)
-
-### Adéla Pečlová
-#### Výroba a prodej šperků, zakázková výroba šperků
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Můžete mě podpořit nákupem šperku z mého atelieru. Ten dostanete zabalený do ručně poskládané krabičky společně s poděkováním a osobním podpisem. Poštovné je zdarma.
-
-Webové stránky: [adelapeclova.cz](https://adelapeclova.cz/)
-
-Instagram/Facebook: [adelapeclova](https://www.instagram.com/adelapeclova/?hl=cs)/[Adéla Pečlová](https://www.facebook.com/peclova/)
-
 ### about studio
 #### Jsme brněnské oděvní studio. Tvoříme nadčasovou a udržitelnou módu pro ženy.
 #### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
@@ -692,17 +785,6 @@ Forma pomoci: Budeme rády za jakýkoliv nákup našich oděvů, které prezentu
 Webové stránky: [aboutstudio.cz](https://www.aboutstudio.cz/)
 
 Instagram/Facebook: [about.studio](https://www.instagram.com/about.studio/)/[about studio](https://www.facebook.com/aboutstudio.cz/)
-
-### Kristýna Malovaná jewellery
-#### výroba šperků a design produktů, interiérů a instalací
-#### Výše ztráty k 27. 3. 2020: 40000
-
-Forma pomoci: Pomoci můžete nákupem přes eshop, kde jsou k dispozici i dárkové poukázky. Dále pak zakázkovou výrobou šperků na míru ( zásnubní i snubní prsteny, medailonek atp.) 
-Moc si Vaší pomoci vážím! Děkuji a přeji hodně zdraví všem! Kristýna
-
-Webové stránky: [kristynamalovana.com](https://www.kristynamalovana.com/)
-
-Facebook: [Kristýna Malovaná jewellery](https://www.facebook.com/Krist%C3%BDna-Malovan%C3%A1-jewellery-1530537500581713/)
 
 ### želé jewellery
 #### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Po 3 rokoch tvorby sa nám podarilo otvoriť zdieľaný ateliér, ktorý sme museli ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
@@ -733,16 +815,6 @@ Forma pomoci: Nákup produktů přes náš eshop. Po dobu karantény nabízíme 
 Webové stránky: [wemove.cz](https://www.wemove.cz/)
 
 Instagram: [wemove_prague](https://www.instagram.com/wemove_prague/)
-
-### Prague tailor
-#### Módní návrhářka tvořící slow fashion na míru. Tři roky tvořím designové pánské košile a půl roku pod značkou Petra Györgyová fashion brand vznikají limitované kolekce dámských šatů, overalů, košil a kabátů. Najdete mě v Showroomu Londýnská 38.
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Individuální schůzky pro šití košil na míru mohou probíhat v bezpečí showroomu nadále. Podpoříte nás i nákupem šitých roušek, business sadou dvou roušek a ručně šitého kapesníčku do saka nebo nákupem voucheru v hodnotě od 1000 Kč. Rozvor v rámci Prahy zdarma. Děkujeme!
-
-Webové stránky: [prague-tailor.cz](http://prague-tailor.cz/)
-
-Instagram: [prague_tailor](https://www.instagram.com/prague_tailor/),[petra_gyorgyova_fashion](https://www.instagram.com/petra_gyorgyova_fashion/)
 
 ### MAYDA
 #### Česká módní značka
@@ -784,16 +856,6 @@ Webové stránky: [nastassiaaleinikava.com)](https://shop.nastassiaaleinikava.co
 
 Instagram: [nastassiaaleinikava](https://www.instagram.com/nastassiaaleinikava/)
 
-### Showroom.
-#### Sdileny Showroom a prodejna osmi designerů
-#### Výše ztráty k 29. 10. 2020: 300 000
-
-Pomoci nám můžete nákupem na e-shopech všech našich designerů, kterými jsou: Soolista, Klára Šípková jewellery, Optiqa, Eiri, Two Lines, About Leather, Cockerel a Yage Organics. Je taky možný nákup jednotlivých kousků nebo dárkových poukazů Showroom přes náš FB, instagram nebo email. Moc si Vaší pomoci vážíme! Děkujeme a za celý team Showroom přejeme hodně zdraví. 
-
-Webové stránky: [showroomdot.cz](http://showroomdot.cz/)
-
-Instagram/Facebook: [showroomdot](https://www.instagram.com/showroomdot/)[ShowroomDot](https://www.facebook.com/ShowroomDot/)
-
 ### ONEDAY
 #### návrhářská činnost, výroba oblečení 
 #### Výše ztráty k 26. 3. 2020: zatím nevyčísleno
@@ -804,16 +866,6 @@ Webové stránky: [one-day.cz](https://www.one-day.cz/)
 
 Instagram/Facebook: [oneday](https://www.instagram.com/oneday.cz/)[oneday](https://www.facebook.com/oneday.cz/) 
 
-### Tereza Rosalie Kladošová
-#### Navrhuji a vyrábím unikátní dámské i pánské oděvy. 
-#### Výše ztráty k 29. 10. 2020: 280000
-
-Pomoci můžete nákupem oděvu. Pokud si nevyberete z nabídky můžeme se domluvit na zakázkové výrobě nebo voucheru. Zatím nemám e-shop, ale ráda vám pošlu katalog. Kontaktujte mne na hello@terezarosaliekladosova.cz, Instagramu nebo Facebooku. Jako poděkování nabízím poštovné zdarma.
-
-Webové stránky: [terezarosaliekladosova.cz](http://terezarosaliekladosova.cz/)
-
-Instagram/Facebook: [terezarosaliekladosova](https://www.instagram.com/terezarosaliekladosova/?hl=cs)[Tereza Rosalie Kladosova](https://www.facebook.com/terezarosaliekladosova/) 
-
 ### Lucie Trnková Glamstones
 #### Jsem designérka s uměleckým vzděláním. Vyrábím šperky a doplňky z drahých kamenů, perel, stříbra, zlata a kůže. Momentálně jsem vyměnila šperky za šití roušek, které daruji do nemocnic, domovům seniorů apod. Bibloo concept Store a další obchody, kde nabízím svou tvorbu, jsou nyní uzavřeny. Tvořím také na zakázku s možností vygravírování monogramu. Používám kvalitní a přírodní materiály, které do detailu zpracovávám, mimo jiné i v jedinečné kožené magnetky či spony na šátky. Vyrábím v ČR a všechny designy mám patentované. 
 #### Výše ztráty k 26. 3. 2020: více než 50 000
@@ -823,16 +875,6 @@ Forma pomoci: Kontaktujte mne prosím přes Instagram. Děkuji. Ráda pro Vás v
 Webové stránky: [glamstones.cz](https://glamstones.cz)
 
 Instagram: [lucietrnkova_glamstones](https://instagram.com/lucietrnkova_glamstones)
-
-### Metráž
-#### Jsme nízkoprahová dílna pro ženy v tísnivé sociální situaci. Spolu s českými designéry tyto ženy vytvářejí designové šperky, doplňky a módu. Naše výrobky prodáváme na designových marketech a v koncept storech a také na našem eshopu. 
-#### Výše ztráty k 29. 10. 2020: 50 000
-
-Forma pomoci: Nákupem některého našeho šperku na našem e-shopu. Dostanou osobní (písemné) poděkování ženy v tísni (pracující u nás v dílně), které šperk vyrobila a která dostane část peněz z jeho prodeje (zbytek putuje na provoz dílny a materiál). 
-
-Webové stránky: [metrazdesign.cz](https://metrazdesign.cz/)
-
-Instagram: [metrazdeisgn](https://www.instagram.com/metrazdesign/)
 
 ### Zualu design
 #### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
@@ -885,16 +927,6 @@ Webové stránky: [youngprimitive.cz](https://www.youngprimitive.cz)
 
 Instagram/Facebook: [youngrimitive](https://www.instagram.com/youngprimitive/)
 
-### Buffet
-#### Navrhovanie a tvorba dámskej a pánskej módy
-#### Výše ztráty k 24. 3. 2020: 100 000
-
-Forma pomoci: Nákup cez eshop alebo Instagram s 10% zľavou po zadaní kódu #malynakupvelkapomoc. Za pár dní predstavíme na Instagrame novú SS20 kolekciu. Poštovné máte zdarma. V mene celého Buffet teamu ďakujeme!
-
-Webové stránky: [buffetclothing.com](https://www.buffetclothing.com/)
-
-Instagram/Facebook: [buffetclothing](https://www.instagram.com/buffetclothing/)/[buffetclothing](https://www.facebook.com/BuffetClothing/)
-
 ### Kadaník
 #### Autorská tvorba designových šperků
 #### Výše ztráty k 24. 3. 2020: neuvedeno
@@ -935,16 +967,6 @@ Webové stránky: [chatty.cz](https://www.chatty.cz/)
 
 Instagram/Facebook: [chattyprague](https://www.instagram.com/chattyprague/)
 
-### 100CLASS concept store
-#### obchod zaměřený na lokální módu a design
-#### Výše ztráty k 23. 3. 2020: 70000
-
-Forma pomoci: nákup na e-shopu
-
-Webové stránky: [stoclass.com](https://www.stoclass.com)
-
-Instagram/Facebook: [100CLASS_concept_store](https://www.instagram.com/100class_concept_store/?hl=cs)/[stoclass](https://www.facebook.com/stoclass/)
-
 ### Etikbutik.cz
 #### E-shop s etickou, pomalou módou a veganskou obuví a doplňky. Výdejna a showroom na Praze 2. Protože eko a etik je také šik! <3
 #### Výše ztráty k 23. 3. 2020: zatím nevyčíslena
@@ -954,26 +976,6 @@ Forma pomoci: nákup online - z celého srdce děkujeme!
 Webové stránky: [etikbutik.cz](http://www.etikbutik.cz)
 
 Instagram/Facebook: [etikbutik.cz](https://www.instagram.com/etikbutik.cz/?hl=cs)/[etikbutik](https://www.facebook.com/etikbutik.cz/)
-
-### BelovedShop
-#### Kurátorský výběr organických a zodpovědných značek. Zaměřujeme se na beauty, jógu a aromaterapii.
-#### Výše ztráty k 23. 3. 2020: desetitisíce
-
-Forma pomoci: Udělá nám radost každý nákup produktu nebo dárkového poukazu.
-
-Webové stránky: [belovedshop.cz](https://belovedshop.cz/)
-
-Instagram/Facebook: [belovedshop.cz](https://www.instagram.com/belovedshop.cz/?hl=cs)
-
-### Harddecore / Josefina Bakošová
-#### Provoz galerie (showroomu značky Josefina Bakošová) a prodej dalších designových doplňků
-#### Výše ztráty k 23. 3. 2020: 80 000
-
-Forma pomoci: Nákup přes e-shop nebo sociální sítě
-
-Webové stránky: [harddecore.com](https://www.harddecore.com/)
-
-Instagram/Facebook: [josefinabakosova](https://www.instagram.com/josefinabakosova)
 
 ### La femme Mimi
 #### Navrhování a tvorba dámských zerowaste oděvů
@@ -1171,6 +1173,49 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### Clap Design
+#### Navrhujeme a vyrábíme kvalitní doplňky do kuchyně a ke stolování. Dřevěné produkty.
+#### Výše ztráty k 2. 11. 2020: 100000
+
+Forma pomoci: Postovne zdarma na vsechny objednavky po CR.
+
+Webové stránky: [clapdesign.cz](https://www.clapdesign.cz)
+
+Facebook: [clapdesign.cz](https://www.facebook.com/clapdesign.cz/)
+
+### BeneWood
+#### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
+#### Výše ztráty k 2. 11. 2020: 180000
+
+Forma pomoci: Na mém nově spuštěném e-shopu si můžete zakoupit mnohé dřevěné výrobky či poukázky na ně. Prostřednictvím značky BeneWood vám chci přinést ruční práci, do které vkládám svoji energii, pokoru, design i sám sebe a vytvářením užitných předmětů dávám dřevu nový tvar a vracím smysl tam, kde jeho růst již skončil. 
+
+Webové stránky: [benewood.cz](https://www.benewood.cz/)
+
+Instagram/Facebook: [bene.wood](https://www.instagram.com/bene.wood/)/[benewoodbene](http://www.facebook.com/benewoodbene)
+
+### Hugo chodí bos 
+#### Je první 100% české hračkářství. Pět let píše dějiny české hračky a snaží se dostat české hračky k dětem. V Praze má Hugo dva kamenné obchody a jeden z nich je kvůli aktuální situaci, nucen zavřít navždy.  
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Pošlete k nám Ježíška, podpoříte tím i našich 150 českých výrobců hraček. K nákupu nad 1000,- céčka zdarma. 
+
+Webové stránky: [hugochodibos.cz](https://www.hugochodibos.cz)
+
+Instagram/Facebook: [hugo_chodi_bos](https://www.instagram.com/hugo_chodi_bos)/[hugochodibos](https://www.facebook.com/hugochodibos/)
+
+
+### JAA∞TY
+#### Autorské módní a bytové doplňky, převážně ze dřeva (a dalších přírodních materiálů). Zodpovědně, lokálně, udržitelně.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Potěší nás každá vaše objednávka, zpětná vazba, veřejné hodnocení i sledování naší cesty na sociálních sítích. Přece jen jsme v tom spolu a aspoň tak si můžeme být blíž. Jako poděkování jsme zavedli stálou dopravu zdarma nad 1000 Kč a ke každému nákupu vždy balíme malou drobnost pro radost.
+
+Hledáte vkusný a udržitelný dárek jako poděkování pro obchodní partnery, zákazníky, zaměstnance? Rádi je vám navrhneme i vyrobíme. Napište nám, děkujeme. 
+
+Webové stránky: [jaa-ty.cz](https://www.jaa-ty.cz)
+
+Instagram: [jaa_ty.cz](https://www.instagram.com/jaa_ty.cz/)
+
 ### TAK TO BYLO / umělecko-sociální projekt
 #### TAK TO BYLO je umělecko-sociální projekt Lenky Záhorkové. Spolupracuje se seniory, které vybízí k ilustrování jejich životních příběhů a vzpomínek. Ilustrace, zachycující osobní výpovědi, zásadní životní situace a vzpomínky, jsou přeneseny na odpadové porcelánové nádobí. Porcelán, který se běžně dědí z pokolení na pokolení, zde slouží jako médium pro mezigenerační komunikaci. Celý projekt nese myšlenky o hodnotách, které přináší stáří.
 #### Výše ztráty k 2. 10. 2020: zatím nevyčíslena
@@ -1261,16 +1306,6 @@ Forma pomoci: Zdravím všechny úžasné podporovatele. Nabízím malovaná ori
 
 Webové stránky: [skfactory.cz](https://www.skfactory.cz/)
 
-### BeneWood
-#### Výroba a prodej designových dřevěných misek, motýlků, prkýnek a dalších drobných řemeslných dřevěných výrobků.
-#### Výše ztráty k 29. 10. 2020: 180000
-
-Forma pomoci: Na mém nově spuštěném e-shopu si můžete zakoupit mnohé dřevěné výrobky či poukázky na ně. Prostřednictvím značky BeneWood vám chci přinést ruční práci, do které vkládám svoji energii, pokoru, design i sám sebe a vytvářením užitných předmětů dávám dřevu nový tvar a vracím smysl tam, kde jeho růst již skončil. 
-
-Webové stránky: [benewood.cz](https://www.benewood.cz/)
-
-Instagram/Facebook: [bene.wood](https://www.instagram.com/bene.wood/)/[benewoodbene](http://www.facebook.com/benewoodbene)
-
 ### Papillon dětem
 #### Pod značkou Papillon vydávám malonákladově autorské knížky, hravé obrázky, pexesa , vyrábím autorská razítka a tisknu barevnou litografii. Jeden z mých hlavních příjmů, který je momentálně pozastaven, je pořádání výtvarných dílen a tvořivých workshopů pro děti i dospělé.
 #### Výše ztráty k 10. 4. 2020: 30 000
@@ -1280,16 +1315,6 @@ Forma pomoci: Můžete si objednat cokoliv na mých stránkách knížku, otáč
 Webové stránky: [papillon-detem.cz](http://www.papillon-detem.cz/)
 
 Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-607902755976238/)
-
-### Hugo chodí bos 
-#### Je první 100% české hračkářství. Pět let píše dějiny české hračky a snaží se dostat české hračky k dětem. V Praze má Hugo dva kamenné obchody a jeden z nich je kvůli aktuální situaci, nucen zavřít navždy.  
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Pošlete k nám Ježíška, podpoříte tím i našich 150 českých výrobců hraček. K nákupu nad 1000,- céčka zdarma. 
-
-Webové stránky: [hugochodibos.cz](https://www.hugochodibos.cz)
-
-Instagram/Facebook: [hugo_chodi_bos](https://www.instagram.com/hugo_chodi_bos)/[hugochodibos](https://www.facebook.com/hugochodibos/)
 
 ### Nela porcelán
 #### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
@@ -1302,16 +1327,6 @@ Webové stránky: [nela-porcelan.cz](https://nela-porcelan.cz/)
 
 Facebook: [nelaporcelan](https://www.facebook.com/nelaporcelan/)
 
-### Balkanova 
-#### Dovoz a prodej tkaných vlněných dek, koberců, přehozů, kilimů, látek a jiných doplňků s původem na Balkáně, konkrétně v Bulharsku a Řecku (např. bulharská vína, přírodní kosmetika, apod.). Společnými rysy výrobků jsou přírodní materiály a suroviny, šetrný způsob výroby a velký podíl ruční práce. 
-#### Výše ztráty k 29. 10. 2020: 150000
-
-Forma pomoci: Při uvedení hesla malynakupvelkapomoc do poznámky objednávky poskytneme poštovné zdarma.
-
-Webové stránky: [balkanova.eco](https://balkanova.eco/)
-
-Instagram/Facebook: [balkanova_eco](https://www.instagram.com/balkanova_eco/) [balkanova]( https://www.facebook.com/vlnene.deky/)
-
 ### Kokedamy.cz
 #### Vyrábíme a prodáváme kokedamy - rostliny v mechové kouli, které se vám můžou zavěšené pohupovat po bytě. Pochází z Japonska a jedná se o moderní trend v pěstování rostlin. Jsou vyráběny ručně, s láskou k přírodě. Kokedamy nabízíme na talířku, závěsné a levitující, které jinde nekoupíte. 
 #### Výše ztráty k 1. 4. 2020: přibližně 120 000
@@ -1321,16 +1336,6 @@ Forma pomoci: Každá objednávka učiněná přes náš internetový obchod ná
 Webové stránky: [kokedamy.cz](https://www.kokedamy.cz)
 
 Facebook: [kokedamy](https://www.facebook.com/kokedamy/)
-
-### Clap Design
-#### Navrhujeme a vyrábíme kvalitní doplňky do kuchyně a ke stolování. Dřevěné produkty.
-#### Výše ztráty k 1. 4. 2020: 250 000
-
-Forma pomoci: Pomůžete nám nákupem. Nabízíme vám SLEVY 30-40% 👉 na vybrané produkty. Např. Neodolatelný magnetický držák na nože Wall Rack!😲 Využijte tuto výjimečnou příležitost pro sebe, ale zároveň tím podpořte lokální značku🙏#malynakupvelkapomoc
-
-Webové stránky: [clapdesign.cz](https://www.clapdesign.cz)
-
-Facebook: [clapdesign.cz](https://www.facebook.com/clapdesign.cz/)
 
 ### Stehlík design
 #### Jsme manželé Alice a Petr a v roce 2015 jsme založili porcelánovou dílnu. Věnujeme se výrobě šperků a dekorací. 80% našich příjmů pochází z kamenných obchodů, které jsou nyní zavřené, a přišli jsme také o plánované zakázky. Každý týden na e-shop přidáváme nové produkty. Nyní chystáme kolekci broží z barevného porcelánu. V dílně se snažíme nezastavovat a, pokud to půjde, rádi bychom opět vystavovali na Designbloku 2020 s naší experimentální tvorbou.
@@ -1381,18 +1386,6 @@ Forma pomoci: Rádi bychom přinášeli radost i dál a udrželi v Česku tradic
 Webové stránky: [smaltum.cz](https://www.smaltum.cz/)
 
 Instagram/Facebook: [smaltum_officia](https://www.instagram.com/smaltum_officia)/[smaltumofficial](https://www.facebook.com/smaltumofficial)
-
-### JAA∞TY
-#### Autorské módní a bytové doplňky, převážně ze dřeva (a dalších přírodních materiálů). Zodpovědně, lokálně, udržitelně.
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: Potěší nás každá vaše objednávka, zpětná vazba, veřejné hodnocení i sledování naší cesty na sociálních sítích. Přece jen jsme v tom spolu a aspoň tak si můžeme být blíž. Jako poděkování jsme zavedli stálou dopravu zdarma nad 1000 Kč a ke každému nákupu vždy balíme malou drobnost pro radost.
-
-Hledáte vkusný a udržitelný dárek jako poděkování pro obchodní partnery, zákazníky, zaměstnance? Rádi je vám navrhneme i vyrobíme. Napište nám, děkujeme. 
-
-Webové stránky: [jaa-ty.cz](https://www.jaa-ty.cz)
-
-Instagram: [jaa_ty.cz](https://www.instagram.com/jaa_ty.cz/)
 
 ### BACKYARD design concept store
 #### současný český design - móda, šperky, doplňky, užité umění
@@ -1562,6 +1555,57 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Knihkupectví & knihařství
+#### Prodej knih, dárkového zboží a obrazů.
+#### Výše ztráty k 2. 11. 2020: 40000
+
+Forma pomoci: Do každé zásilky, kterou si někdo na eshopu objedná, přidávám malý dárek.
+
+Webové stránky: [knihy-galerie.cz](http://www.knihy-galerie.cz)
+
+Facebook: [Knihkupectvi Kniharstvi](https://www.facebook.com/KnihkupectviKniharstvi/)
+
+### Jóga Letná
+#### Provozujeme lekce jógy a pilates
+#### Výše ztráty k 2. 11. 2020: 200000+
+
+Forma pomoci: Lidé nám mohou pomoci tím, že se budou i doma udržovat ve fyzické a psychické pohodě cvičením jógy a to společně s námi přes náš Youtube kanál Jóga Letná a Vinohrady! Od doby karantény jsme z offline lekcí jógy přesunuli naše lektory do virtuálního světa. Od doby karantény taky spousta z vás začalo trápit kromě ztráty pohybu i špatná nálada, úzkosti a deprese ze současné situace. S jógou se udržíte nejenom fyzicky fit, ale i mentálně. Vaším příspěvkem za lekce na Youtube či v našem rozvrhu pomůžete zaplatit nájem a podpořit lektory, kteří pro vás připravují své online lekce.
+
+Webové stránky: [jogaletna.cz](https://www.jogaletna.cz)
+
+Instagram/Facebook: [jogaletna](https://www.instagram.com/jogaletna/)
+
+### Rebelion ateliér
+#### V Rebelion ateliéru pořádáme kurzy šití pro ty, kteří by rádi pronikli do tajů tohoto řemesla. V nabídce máme hned několik typů kurzů. Školení lektoři mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se mu věnují s láskou. Zakládáme si na tom, aby se u nás účastníci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: V aktuální situaci nám nejvíce pomohou nákupy dárkových poukazů, které můžou zájemci darovat jako vánoční dárek. Dárkový poukaz na různé typy kurzů, v našich ateliérech, má platnost 1 rok od zakoupení.
+
+Webové stránky: [rebelionatelier.cz](http://rebelionatelier.cz/eshop/)
+
+Instagram/Facebook: [rebelion_atelier](https://www.instagram.com/rebelion_atelier/)/[rebelion_atelier](https://www.facebook.com/rebelionatelier/)
+
+
+### Studio Vjemy
+#### produktový design a návrh interiérů
+#### Výše ztráty k 2. 11. 2020: 150000
+
+Forma pomoci: Udělejte si radost sobě nebo někomu jinému nákupem designového nádobí nebo šperkem, nám tím velice pomůžete. děkujeme
+
+Webové stránky: [vjemy.cz](https://vjemy.cz/cs/)
+
+Instagram/Facebook: [studio_vjemy](https://www.instagram.com/studio_vjemy/)/[studiovjemy](https://www.facebook.com/studiovjemy/)
+
+### Daily
+####  Při tvorbě vycházím z koloběhu ročních období, dostupnosti a rozmanitosti přírodních darů. Tvořím s ohledem na přírodu a bez zbytečného odpadu. Mým snem je zachytit pomíjivou krásu přírody, aby vám dělala radost denně.
+#### Výše ztráty k 29. 10. 2020: 50 000
+
+Nejvíce nám pomůže objednávka adventního nebo vánočního věnce, řezané kytice na váš štědrovečerní stůl nebo vánoční dekorace. Doručení po Praze je zdarma!
+
+Webové stránky: [atelierdaily.cz](https://www.atelierdaily.cz/)
+
+Instagram: [atelierdaily](https://instagram.com/atelierdaily?igshid=x64n6yrxu7ae)
+
 ### Řekni To Merchem
 #### Pomáháme lokálním umělcům, neziskovkám, malým firmám a všem, pro které prodej merche znamená důležitý přínos. Postaráme se o návrh, výrobu, prodej a distribuci a 80 % z prodeje každého produktu posíláme každý měsíc konkrétnímu zapojenému projektu, 20 % pokrývá provoz e-shopu.
 #### Výše ztráty k 21. 10. 2020: zatím nevyčíslená
@@ -1654,16 +1698,6 @@ Webové stránky: [vazarna.cz](https://www.vazarna.cz)
 
 Instagram/Facebook: [vazarna](https://www.instagram.com/vazarna/)/[vazarna](https://www.facebook.com/vazarna/)
 
-### Rebelion ateliér
-#### V Rebelion ateliéru pořádáme kurzy šití pro ty, kteří by rádi pronikli do tajů tohoto řemesla. V nabídce máme hned několik typů kurzů. Školení lektoři mají se šitím spoustu zkušeností. Ať už šijí na zakázku nebo mají vlastní značku, všichni se mu věnují s láskou. Zakládáme si na tom, aby se u nás účastníci cítili jako doma a chodili si k nám odpočinout. Naše kurzy jsou také určeny těm, kteří by se rádi vymanili ze spárů nadnárodních fast fashion obchodů a věnovali se tvorbě vlastního oblečení. Myšlenka slow fashion je pro nás velmi důležitá. 
-#### Výše ztráty k 29. 10. 2020: zatím nevyčíslena
-
-Forma pomoci: V aktuální situaci nám nejvíce pomohou nákupy dárkových poukazů, které můžou zájemci darovat jako vánoční dárek. Dárkový poukaz na různé typy kurzů, v našich ateliérech, má platnost 1 rok od zakoupení.
-
-Webové stránky: [rebelionatelier.cz](http://rebelionatelier.cz/eshop/)
-
-Instagram/Facebook: [rebelion_atelier](https://www.instagram.com/rebelion_atelier/)/[rebelion_atelier](https://www.facebook.com/rebelionatelier/)
-
 ### LIKA KLUB, rodinné nakladatelství
 #### Vydáváme od roku 1992 nepřetržitě knihy  v malých nákladech. Dětské, pro volný čas, podporujeme české autory. Unikátní je oceňovaná řada výpravných publikací o tradiční lidové kultuře, řemeslech a umění. Originální grafické a pečlivé polygrafické zpracování.
 #### Výše ztráty k 31. 3. 2020: 80000
@@ -1681,26 +1715,6 @@ Forma pomoci: Váš nákup na našem e-shopu by nám moc pomohl, vzhledem k tomu
 Webové stránky: [kralovskesvatby.cz](https://www.kralovskesvatby.cz/)
 
 Instagram/Facebook: [kralovskesvatby](https://www.instagram.com/kralovskesvatby/)/[kralovskesvatby](https://www.facebook.com/kralovskesvatby/)
-
-### Knihkupectví & knihařství
-#### Prodej knih, dárkového zboží a obrazů.
-#### Výše ztráty k 29. 10. 2020: 40000
-
-Forma pomoci: Do každé zásilky, kterou si někdo na eshopu objedná, přidávám malý dárek.
-
-Webové stránky: [knihy-galerie.cz](http://www.knihy-galerie.cz)
-
-Facebook: [Knihkupectvi Kniharstvi](https://www.facebook.com/KnihkupectviKniharstvi/)
-
-### Studio Vjemy
-#### produktový design a návrh interiérů
-#### Výše ztráty k 29. 10. 2020: 150000
-
-Forma pomoci: Udělejte si radost sobě nebo někomu jinému nákupem designového nádobí nebo šperkem, nám tím velice pomůžete. děkujeme
-
-Webové stránky: [vjemy.cz](https://vjemy.cz/cs/)
-
-Instagram/Facebook: [studio_vjemy](https://www.instagram.com/studio_vjemy/)/[studiovjemy](https://www.facebook.com/studiovjemy/)
 
 ### Dox by Qubus
 #### Dox by Qubus je galerijní obchod situován v Centru současného umění DOX, nabízející sklo, porcelán, šperky, módu a užitý design od předních českých designérů, ale i zahraničních tvůrců.
@@ -1737,16 +1751,6 @@ Webové stránky: [kartoteka.store](https://kartoteka.store/)
 
 Instagram: [kartoteka_store](https://www.instagram.com/kartoteka_store/)
 
-### Daily
-####  Při tvorbě vycházím z koloběhu ročních období, dostupnosti a rozmanitosti přírodních darů. Tvořím s ohledem na přírodu a bez zbytečného odpadu. Mým snem je zachytit pomíjivou krásu přírody, aby vám dělala radost denně.
-#### Výše ztráty k 29. 10. 2020: 50 000
-
-Nejvíce nám pomůže objednávka adventního nebo vánočního věnce, řezané kytice na váš štědrovečerní stůl nebo vánoční dekorace. Doručení po Praze je zdarma!
-
-Webové stránky: [atelierdaily.cz](https://www.atelierdaily.cz/)
-
-Instagram: [atelierdaily](https://instagram.com/atelierdaily?igshid=x64n6yrxu7ae)
-
 ### young_block
 #### Polygrafie a knihařská činnost
 #### Výše ztráty k 25. 3. 2020: 450 000 CZK
@@ -1756,16 +1760,6 @@ Forma pomoci: Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek
 Webové stránky: [youngblock.cz](https://www.youngblock.cz)
 
 Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young_block](https://www.facebook.com/youngblock.cz/)
-
-### Jóga Letná
-#### Provozujeme lekce jógy a pilates
-#### Výše ztráty k 29. 10. 2020: 200000+
-
-Forma pomoci: Lidé nám mohou pomoci tím, že se budou i doma udržovat ve fyzické a psychické pohodě cvičením jógy a to společně s námi přes náš Youtube kanál Jóga Letná a Vinohrady! Od doby karantény jsme z offline lekcí jógy přesunuli naše lektory do virtuálního světa. Od doby karantény taky spousta z vás začalo trápit kromě ztráty pohybu i špatná nálada, úzkosti a deprese ze současné situace. S jógou se udržíte nejenom fyzicky fit, ale i mentálně. Vaším příspěvkem za lekce na Youtube či v našem rozvrhu pomůžete zaplatit nájem a podpořit lektory, kteří pro vás připravují své online lekce.
-
-Webové stránky: [jogaletna.cz](https://www.jogaletna.cz)
-
-Instagram/Facebook: [jogaletna](https://www.instagram.com/jogaletna/)
 
 ### Papelote
 #### Papírenská dílna a grafické studio, provoz kamenného obchodu
@@ -1779,6 +1773,16 @@ Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papel
 
 
 ## Beauty
+
+### BelovedShop
+#### Kurátorský výběr organických a zodpovědných značek. Zaměřujeme se na beauty, jógu a aromaterapii.
+#### Výše ztráty k 2. 11. 2020: nevyčislítelná, pohybující se ve stovkách tisíc
+
+Forma pomoci: Budeme rádi za každou objednávku. Malou či velkou. 
+
+Webové stránky: [belovedshop.cz](https://belovedshop.cz/)
+
+Instagram/Facebook: [belovedshop.cz](https://www.instagram.com/belovedshop.cz/?hl=cs)
 
 ### Anna Marešová designers s.r.o.
 #### Intimní produkty pro ženy plné něhy a čistoty
