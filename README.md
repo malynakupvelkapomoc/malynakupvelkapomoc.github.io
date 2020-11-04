@@ -11,6 +11,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### LEEDA
+####   LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
+#### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem, doporučením, sdílením na FCB a INSTAGRAMU.
+
+Webové stránky: [leeda.cz](https://leeda.cz)
+
+Instagram: [leedastore](https://www.instagram.com/leedastore/)
+
 ### OKKOFASHION
 #### Značka OK:KO fashion vznikla jako protipól konzumního způsobu nakupování, mottem kterého je: „co  nejvíce kusů oblečení za co nejlevnější cenu… Vše, z čeho „poskládáte“ svůj šatník. Limitované edice.
 #### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
