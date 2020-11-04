@@ -15,7 +15,8 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 ####   LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
 #### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
 
-Forma pomoci: Nákupem, doporučením, sdílením na FCB a INSTAGRAMU.
+Forma pomoci: "Nejvíce pomůže nákup. I když teď musíme mít kamenný obchod z nařízení vlády uzavřen, e-shop www.leeda.cz stále funguje. Leedu znovu otevřeme hned jak to bude povoleno.
+Abychom s vámi mohli zůstat v kontaktu - dostávali jste info kolekcích, slevách, nebo kódy na zvýhodněný nákup, doporučujeme přihlásit se na www.leeda.cz do našeho mailingu. Na e-shopu lze koupit i dárkové poukázky. Díky! "
 
 Webové stránky: [leeda.cz](https://leeda.cz)
 
