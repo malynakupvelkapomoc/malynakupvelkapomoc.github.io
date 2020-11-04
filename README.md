@@ -11,6 +11,55 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### OKKOFASHION
+#### Značka OK:KO fashion vznikla jako protipól konzumního způsobu nakupování, mottem kterého je: „co  nejvíce kusů oblečení za co nejlevnější cenu… Vše, z čeho „poskládáte“ svůj šatník. Limitované edice.
+#### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Nákupem, doporučením, sdílením na FCB a INSTAGRAMU.
+
+Webové stránky: [okkofashion.cz](https://www.okkofashion.cz)
+
+Instagram/Facebook: [okko.fashion](https://www.instagram.com/okko.fashion/)/[OKKOFASHION.cz](https://www.facebook.com/OKKOFASHION.cz/)
+
+### Zualu design
+#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
+#### Výše ztráty k 4. 11. 2020: zatím nevyčísleno
+
+Forma pomoci: Malé české značce Zualu design pomůže jakýkoli nákup autorského šperku čistého designu, který vzniká pod jejíma rukama... A aby se vám nakupovalo ještě lépe, tak jsem pro vás připravila dopravu zdarma nad 1000,- , a to i v případě zakázek na míru! 
+
+Webové stránky: [zualu.cz](https://www.zualu.cz/)
+
+Facebook: [Zualudesign](https://www.facebook.com/Zualudesign)
+
+### želé jewellery
+#### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Po 3 rokoch tvorby sa nám podarilo otvoriť zdieľaný ateliér, ktorý sme museli ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
+#### Výše ztráty k 4. 11. 2020: 300000
+
+Forma pomoci: Budeme radi za akúkoľvek kúpu šperku, ktorý Vám alebo vaším blízkym urobí radosť. Môžte si vybrať z konkrétnej ponuky na webe, alebo Vám s radosťou vyrobíme originálny kúsok na mieru podľa vašich predstáv. Poštovné zdarma, ručne napísané poďakovanie a vianočné prianie.
+
+Webové stránky: [zelejewellery.com](https://www.zelejewellery.com/)
+
+Instagram/Facebook: [zele_jelly](https://www.instagram.com/zele_jelly/)/[zele.jelly](https://www.facebook.com/zele.jelly/)
+
+### La femme Mimi
+#### Navrhování a tvorba dámských zerowaste oděvů
+#### Výše ztráty k 2. 11. 2020: 15000/den
+
+Forma pomoci: Nákupem na e-shopu www.lafemmemimi.com s 20% slevou po zadání kódu "delamsiradost"
+
+Webové stránky: [lafemmemimi.com](https://www.lafemmemimi.com/)
+
+Instagram/Facebook: [la_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[lafemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
+
+### about studio
+#### Jsme brněnské oděvní studio. Tvoříme nadčasovou a udržitelnou módu pro ženy.
+#### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Budeme rády za jakýkoliv nákup našich oděvů, které prezentujeme na Instagramu a Facebooku. Stačí poslat zprávu nebo mail na about@aboutstudio.cz. Děkujeme za vaši podporu, díky které se snad znovu potkáme v lepších časech. Anna, Radka a Tereza
+
+Webové stránky: [aboutstudio.cz](https://www.aboutstudio.cz/)
+
+Instagram/Facebook: [about.studio](https://www.instagram.com/about.studio/)/[about studio](https://www.facebook.com/aboutstudio.cz/)
 
 ### DARK / Concept Store
 #### Store s českou a slovenskou designérskou módou a doplňky zaměřený na streetwear a oblečení tmavých barev
@@ -430,16 +479,6 @@ Webové stránky: [retterova.com](http://www.retterova.com)
 
 Instagram: [roe_retterova](https://www.instagram.com/roe_retterova)
 
-### OKKOFASHION
-#### Značka OK:KO fashion vznikla jako protipól konzumního způsobu nakupování, mottem kterého je: „co  nejvíce kusů oblečení za co nejlevnější cenu… Vše, z čeho „poskládáte“ svůj šatník. Limitované edice.
-#### Výše ztráty k 15. 4. 2020: 45 000
-
-Forma pomoci: K objednávce oblečeni přes 1000kč - sladěná rouška zdarma.
-
-Webové stránky: [okkofashion.cz](https://www.okkofashion.cz)
-
-Instagram/Facebook: [okko.fashion](https://www.instagram.com/okko.fashion/)/[OKKOFASHION.cz](https://www.facebook.com/OKKOFASHION.cz/)
-
 ### Moment - Prospěšný second hand
 #### Ziskem z darovaného oblečení podporujeme pět neziskových organizací. Naším cílem je prospěšnost. Tvoříme komunitu pro udržitelné oblékání a zapojujeme Česko do pomoci neziskovkám.
 #### Výše ztráty k 15. 4. 2020: 1 500 000
@@ -776,44 +815,13 @@ Webové stránky: [rivica.sk](https://rivica.sk)
 
 Instagram/Facebook: [rivica.sk](https://www.instagram.com/rivica.sk/)/[rivica.sk](https://m.facebook.com/rivica.sk/)
 
-### LEEDA
-#### LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
-#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: nákup na www.leeda.cz momentálně se slevou 20%, poštovné mimo roušek zdarma...
-
-Webové stránky: [leeda.cz](https://leeda.cz)
-
-Instagram: [leedastore](https://www.instagram.com/leedastore/)
-
 ### VINNÁ
 #### výroba šperků z révy vinné
 #### Výše ztráty k 27. 3. 2020: 20000
 
 Forma pomoci: Pomoci může koupě on-line, přes FB, Instagram.. Věřím, že i v těžší době si dál děláte radost a kouzlíte úsměvy jeden druhému. Pořád máme narozeniny, první máje, dny dětí i otců.. Proto chci nabídnout možnost nákupu bez platby poštovného. Při nákupu více kusů počítejte se slevou 20 % na všechno. Od dubna se můžete těšit i na pánskou kolekci. Děkuji a těším se! 
 
-
 Instagram/Facebook: [su_vinna](https://www.instagram.com/su_vinna/?hl=cs/)[Vinná](https://www.facebook.com/jsemvinna/)
-
-### about studio
-#### Jsme brněnské oděvní studio. Tvoříme nadčasovou a udržitelnou módu pro ženy.
-#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Budeme rády za jakýkoliv nákup našich oděvů, které prezentujeme na Instagramu a Facebooku. Po letech tvorby na míru jsme se letos rozhodly připravit ucelenou kolekci STÁLÁ. Věříme, že nákup kteréhokoliv našeho kousku oblečení, bude pro vás dobrou investicí. Jako malé poděkování za podporu vám můžeme nabídnout poštovné zdarma a bavlněnou roušku ke každé objednávce. Stačí poslat zprávu přes FB, IG či na mail: about@aboutstudio.cz
-
-Webové stránky: [aboutstudio.cz](https://www.aboutstudio.cz/)
-
-Instagram/Facebook: [about.studio](https://www.instagram.com/about.studio/)/[about studio](https://www.facebook.com/aboutstudio.cz/)
-
-### želé jewellery
-#### Želé navrhuje autorské kolekcie, experimentuje a snaží sa motivovať k podpore lokálnej dizajnérskej tvorby. Hľadá kombinácie s netradičnými prvkami, materiálmi a baví ho pohybovať sa na hranici toho, čo šperk pre nositeľa predstavuje. Individuálny prístup ku klientom a dizajnérskej práci je ten pocit, ktorý nás naplňuje a nabáda znova tvoriť. Po 3 rokoch tvorby sa nám podarilo otvoriť zdieľaný ateliér, ktorý sme museli ako mnohí iní uzavrieť. Veríme, že to vďaka Vám zvládneme! Vopred ďakujeme za podporu.
-#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Budeme radi za akúkoľvek kúpu šperku, ktorý Vám alebo vaším blízkym urobí radosť. Môžte si vybrať z konkrétnej ponuky na webe, alebo Vám s radosťou vyrobíme originálny kúsok na mieru podľa vašich predstáv. Času máme teraz dosť. :) Samozrejme počítajte s poštovným zdarma.
-
-Webové stránky: [zelejewellery.com](https://www.zelejewellery.com/)
-
-Instagram/Facebook: [zele_jelly](https://www.instagram.com/zele_jelly/)/[zele.jelly](https://www.facebook.com/zele.jelly/)
 
 ### B TEAM / BOTAS 66
 #### Jsme iniciátoři, designéři a ex-oficiální prodejci české obuvnické značky BOTAS 66.
@@ -895,17 +903,6 @@ Webové stránky: [glamstones.cz](https://glamstones.cz)
 
 Instagram: [lucietrnkova_glamstones](https://instagram.com/lucietrnkova_glamstones)
 
-### Zualu design
-#### Podstatou značky Zualu design je zkoumání a objevování možností materiálů a jejich netradiční spojování do souhry tvořící výsledný šperk či objekt. Designérka Zuzana Peroutková pracuje převážně s hliníkem, dřevem, surovým kamenem, akrylátovým sklem, plastem či textilem, a to jak samostatně, tak zejména ve vzájemných dialozích. Dualita je typická nejen pro samotná spojení materiálů, ale i výsledný design. Filozofie výroby následuje pomalé hnutí Slow Fashion, resp. Slow Jewellery.
-#### Výše ztráty k 25. 3. 2020: zatím nevyčísleno
-
-Forma pomoci: Dopravné zdarma při nákupu nad 500,- Kč, která platí i pro zakázky na míru! 
-A proč nakoupit právě teď? Protože i malý nákup je velká pomoc... Protože vám přijde originální český šperk s rodokmenem, kterým potěšíte nejen sebe, ale i mě... A třeba i někoho, koho tímto kouskem v této těžké době obdarujete - právě teď je radost a pozitivní myšlení nejvíce potřeba! Podpořte udržitelnou tvorbu a předejte kousek naděje, že sen přežije! ♡ Protože #slowjewellery přeci musí přežít! Děkujeme za jakoukoli podporu ♡
-
-Webové stránky: [zualu.cz](https://www.zualu.cz/)
-
-Facebook: [Zualudesign](https://www.facebook.com/Zualudesign)
-
 ### Eliška Lhotská jewellery
 #### šperk
 #### Výše ztráty k 2. 11. 2020: zatím nevyčísleno
@@ -985,16 +982,6 @@ Forma pomoci: nákup online - z celého srdce děkujeme!
 Webové stránky: [etikbutik.cz](http://www.etikbutik.cz)
 
 Instagram/Facebook: [etikbutik.cz](https://www.instagram.com/etikbutik.cz/?hl=cs)/[etikbutik](https://www.facebook.com/etikbutik.cz/)
-
-### La femme Mimi
-#### Navrhování a tvorba dámských zerowaste oděvů
-#### Výše ztráty k 23. 3. 2020: 100 000
-
-Forma pomoci: Nákup produktů či voucheru na e-shopu. Máme novou kolekci SS2020!
-
-Webové stránky: [lafemmemimi.com](https://www.lafemmemimi.com/)
-
-Instagram/Facebook: [la_femme_mimi_prague](https://www.instagram.com/la_femme_mimi_prague/)/[lafemmemimiprague](https://www.facebook.com/lafemmemimiprague/)
 
 ### LAFORMELA
 #### Navrhování a tvorba módních oděvů
@@ -1182,6 +1169,47 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### LUIS
+#### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
+#### Výše ztráty k 4. 11. 2020: 600000
+
+Forma pomoci: Podpořit nás můžete nákupem na našem e-shopu Luis.cz. Každé vaší pomoci si vážíme! Tak vám na oplátku nabízíme 20% slevu na všechny nezlevněné produkty při zadání slevového kódu “VELKAPOMOC”. Děkujeme Vám!
+
+Webové stránky: [luis.cz](https://www.luis.cz/)
+
+Instagram/Facebook: [luis_decorationcz](https://www.instagram.com/luis_decorationcz/)/[Luis decoration](https://www.facebook.com/Luisdecoration.shop/)
+
+### NALEJTO ceramic design
+#### Trojice designérek – Markéta Kalivodová, Lucie Vostalová a Lenka Záhorková, které se zabývají převážně užitým porcelánem, ale i volnými objekty
+#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
+
+Forma pomoci: Kup si něco :) Kompletní portfolio najdeš na našem webu a o produkt si napiš mailem. Při připojení hesla “malynakupvelkapomoc” získáš SLEVU 10%. Podpořit můžeš také třeba sdílením naší značky na sociálních sítích mezi vaše přátelé.
+
+Webové stránky: [nalejto.com](http://www.nalejto.com/)
+
+Instagram: [nalejto_ceramic_design](https://www.instagram.com/nalejto_ceramic_design/)
+
+### Peelo
+#### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže nahradiť plastovú fóliu. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k prírode.
+#### Výše ztráty k 2. 11. 2020: 170 000
+
+Forma pomoci: V našom e-shope môžete získať zľavu 10% na každý nákup nad 25 EUR s kódom MALYNAKUP10. Ak chcete na Vianoce obdarovať niekoho blízkeho alebo niekomu poslať k sviatku ekologický darček, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
+
+Webové stránky: [peelo.store](https://peelo.store/)
+
+Instagram/Facebook: [peelo.wraps](https://www.instagram.com/peelo.wraps/ )/[peelo.wraps](https://www.facebook.com/peelo.wraps/)
+
+
+### BACKYARD design concept store
+#### současný český design - móda, šperky, doplňky, užité umění
+#### Výše ztráty k 2. 11. 2020: 500000
+
+Forma pomoci: nákup zboží přes e-shop či email
+
+Webové stránky: [back-yard.cz](https://www.back-yard.cz)
+
+Facebook: [bckrd](https://www.facebook.com/bckrd/)
+
 ### keramik.ART.studio
 #### prodej autorských originálů na e-shopu
 #### Výše ztráty k 2. 11. 2020: odhadem zatím 350000
@@ -1275,16 +1303,6 @@ Forma pomoci: Návštěva vzorkovny a nákup. Aktuálně máme slevy na akční 
 Webové stránky: [rostoucinabytek.com](https://www.rostoucinabytek.com/)
 
 Facebook: [[rostoucinabytek](https://www.facebook.com/rostoucinabytek/)
-
-### LUIS
-#### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
-#### Výše ztráty k 14. 5. 2020: 300000
-
-Forma pomoci: Podpořit nás můžete nákupem na našem e-shopu nebo kamenné prodejně v Brně. Každé vaší pomoci si vážíme! Tak vám na oplátku nabízíme 30% slevu na všechny nezlevněné produkty při zadání slevového kódu "VELKAPOMOC". Děkujeme Vám!
-
-Webové stránky: [luis.cz](https://www.luis.cz/)
-
-Instagram/Facebook: [luis_decorationcz](https://www.instagram.com/luis_decorationcz/)/[Luis decoration](https://www.facebook.com/Luisdecoration.shop/)
 
 ### Wheelock design shop 
 #### Je mladý obchod na Letné, kde nabízíme zajímavé a neotřelé, české designérské značky i značky ze zahraničí. Naším cílem je ukázat, že krásné a kvalitní doplňky si může dovolit každý. Nabízíme doplňky do domacnosti, jako třeba porcelán, dřevené doplňky, kuchyňský textil, a také šperky a hodinky, hračky pro děti, doplňky pro může, kožené batohy a barefoot mokasíny. Vybíráme věci vyrobené z kvalitních přírodních materiálů, organických bio ingredientů, vyrobené ručně a s láskou. 
@@ -1407,16 +1425,6 @@ Webové stránky: [smaltum.cz](https://www.smaltum.cz/)
 
 Instagram/Facebook: [smaltum_officia](https://www.instagram.com/smaltum_officia)/[smaltumofficial](https://www.facebook.com/smaltumofficial)
 
-### BACKYARD design concept store
-#### současný český design - móda, šperky, doplňky, užité umění
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: nákup na e-shopech našich designérů (viz webové stránky) nebo nákup voucheru Backyard ve vámi zvolené výši s neomezenou platností prostřednictvím emailu by@back-yard.cz nebo FCB
-
-Webové stránky: [back-yard.cz](https://www.back-yard.cz)
-
-Facebook: [bckrd](https://www.facebook.com/bckrd/)
-
 ### tyformy
 #### Studio Tyformy zaměřující se na tvorbu užitných předmětů z porcelánu vede Pavla Vachunová. 
 #### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
@@ -1426,16 +1434,6 @@ Forma pomoci: Podpořit nás můžete zakoupenám produktů na našem e-shopu, d
 Webové stránky: [tyformy.cz](http://tyformy.cz)
 
 Instagram: [tyformy](https://www.instagram.com/tyformy/ )
-
-### Peelo
-#### Peelo je slovenský obal na potraviny z včelieho vosku, ktorý udrží potraviny dlhšie čerstvé a dokáže nahradiť plastovú fóliu. Je ideálny na zabalenie ovocia, zeleniny, syrov, pečiva, skvelo sa prispôsobí akémukoľvek tvaru misky alebo nádoby, a preto je univerzálnym parťákom v kuchyni, ale aj na cestách pre každého, kto chce prispieť k čistejšej planéte bez zbytočných plastov. Vyrábame ho v našej malej dielni v Bratislave z lokálnych surovín a certifikovanej OEKO-TEX® bavlny, poctivo a férovo k prírode.
-#### Výše ztráty k 30. 3. 2020: 2000
-
-Forma pomoci: Až do odvolania si v našom e-shope môžete kúpiť akýkoľvek produkt s poštovným ZADARMO do celej SR a ČR a s kódom PRVEPEELO môžete navyše získať zľavu 10% na prvý nákup. Ak chcete v týchto dňoch obdarovať niekoho, kto má sviatok alebo len tak potešiť niekoho praktickým a ekologickým darčekom, stačí do poznámky napísať, že ide o darček a k objednávke pribalíme ručne napísané osobné venovanie. :)
-
-Webové stránky: [peelo.store](https://peelo.store/)
-
-Instagram/Facebook: [peelo.wraps](https://www.instagram.com/peelo.wraps/ )/[peelo.wraps](https://www.facebook.com/peelo.wraps/)
 
 ### Utukutu
 #### Jsme rodinná truhlárna, kde vyrábíme pohybové hračky pro dospělé a děti, které sami vymýšlíme, designujeme a uvádíme na trh. Přinášíme do domovů pohyb, barvy a ladnost dřeva.
@@ -1467,16 +1465,6 @@ Forma pomoci: Nákup našich výrobků pomůže nejvíce. Můžeme za vás také
 Webové stránky: [keramika-andreas.cz](https://www.keramika-andreas.cz/)
 
 Instagram/Facebook: [andreaskeramika](https://www.instagram.com/andreaskeramika/)/[andreaskeramika](https://www.facebook.com/andreasvotice)
-
-### NALEJTO ceramic design
-#### Trojice designérek – Markéta Kalivodová, Lucie Vostalová a Lenka Záhorková, které se zabývají převážně užitým porcelánem, ale i volnými objekty
-#### Výše ztráty k 28. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Podpořit nás můžete koupí našich produktů. Kompletní portfolio najdete na našem webu a o produkt si napsat emailem. Při připojení hesla "malynakupvelkapomoc" získáš SLEVU 10%. Podpořit nás také můžete třeba sdílením naší značky na sociálních sítích mezi vaše přátelé. 
-
-Webové stránky: [nalejto.com](http://www.nalejto.com/)
-
-Instagram: [nalejto_ceramic_design](https://www.instagram.com/nalejto_ceramic_design/)
 
 ### studio KAKAO
 ####  Jsme produktové, kreativní studio zaměřené na udržitelný design či recyklaci. V pražských Dejvicích máme studio kde nejen že pracujeme ale pořádáme workshopy, pop-upy či malé eventy pro veřejnost jako například SWAP pokojovek. Najdete nás také na Design marketu a SLOU days, které se bohužel v současné situaci nemohou konat. Ale těšíme se!
@@ -1564,6 +1552,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 
 ## Služby
+
+### Dox by Qubus
+#### Dox by Qubus je galerijní obchod situován v Centru současného umění DOX, nabízející sklo, porcelán, šperky, módu a užitý design od předních českých designérů, ale i zahraničních tvůrců.
+#### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: "Nákup na e-shopu: www.doxbyqubus.cz. 20% sleva na značku Qubus a 10% na vše ostatní na e-shopu."
+
+Webové stránky: [doxbyqubus.cz](https://www.doxbyqubus.cz/)
+
+Instagram/Facebook: [dox_by_qubus](https://www.instagram.com/dox_by_qubus/)/[Dox By Qubus](https://www.facebook.com/DoxByQubus/?ref=bookmarks)
 
 ### Neposer se
 #### Kniha NEPOSER SE, workshopy a konzultace o tom, jak čelit výzvám. Učíme také přízvuky rodilých mluvčí AJ (britský i americký).
@@ -1735,16 +1733,6 @@ Webové stránky: [kralovskesvatby.cz](https://www.kralovskesvatby.cz/)
 
 Instagram/Facebook: [kralovskesvatby](https://www.instagram.com/kralovskesvatby/)/[kralovskesvatby](https://www.facebook.com/kralovskesvatby/)
 
-### Dox by Qubus
-#### Dox by Qubus je galerijní obchod situován v Centru současného umění DOX, nabízející sklo, porcelán, šperky, módu a užitý design od předních českých designérů, ale i zahraničních tvůrců.
-#### Výše ztráty k 27. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Každá objednávka nám pomůže. Aktuálně nabízíme na e-shopu 20% slevu značku QUBUS a 10% na vše ostatní. Zboží odesíláme bez přerušení a možný je také osobní odběr.
-
-Webové stránky: [doxbyqubus.cz](https://www.doxbyqubus.cz/)
-
-Instagram/Facebook: [dox_by_qubus](https://www.instagram.com/dox_by_qubus/)/[Dox By Qubus](https://www.facebook.com/DoxByQubus/?ref=bookmarks)
-
 ### Institut módní tvorby
 #### Kurzy oděvní tvorby pro veřejnost.
 #### Výše ztráty k 27. 3. 2020: 160 000
@@ -1779,6 +1767,16 @@ Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papel
 
 
 ## Beauty
+
+### anemone
+#### Online beauty obchod s jedinečnou prírodnou kozmetikou. Veríme v kvalitné ingrediencie a skutočné výsledky.
+#### Výše ztráty k 4. 11. 2020: zatiaľ nevyčíslená
+
+Forma pomoci: Každá vaša objednávka nám urobí veľkú radosť. Čo síce platí aj v bežné dni, avšak v súčasnosti o to viac.
+
+Webové stránky: [anemonegarden.sk](https://www.anemonegarden.sk/)
+
+Instagram/Facebook: [anemone_beautystore](https://www.instagram.com/anemone_beautystore/)/[anemonegardensk](https://www.facebook.com/anemonegardensk)
 
 ### BelovedShop
 #### Kurátorský výběr organických a zodpovědných značek. Zaměřujeme se na beauty, jógu a aromaterapii.
@@ -1839,17 +1837,7 @@ Forma pomoci: Budeme rádi za nákup na eshopu s bezpečným osobním doručení
 
 Webové stránky: [objectstore.cz](https://www.objectstore.cz)
 
-Instagram: [objectconceptstore](https://www.instagram.com/objectconceptstore/)
-
-### anemone
-#### Online beauty obchod s jedinečnou prírodnou kozmetikou. Veríme v kvalitné ingrediencie a skutočné výsledky.
-#### Výše ztráty k 26. 3. 2020: zatiaľ nevyčíslená
-
-Forma pomoci: Každá vaša objednávka nám urobí veľkú radosť. Čo síce platí aj v bežné dni, avšak v súčasnosti o to viac.
-
-Webové stránky: [anemonegarden.sk](https://www.anemonegarden.sk/)
-
-Instagram/Facebook: [anemone_beautystore](https://www.instagram.com/anemone_beautystore/)/[anemonegardensk](https://www.facebook.com/anemonegardensk) 
+Instagram: [objectconceptstore](https://www.instagram.com/objectconceptstore/) 
 
 ### Česká přírodní kosmetika BYLINEO 
 #### Vyrábíme českou přírodní kosmetiku s výtažkem PEZRA. Prodej zajišťujeme s 90 % na farmářských trzích a akcích v lázních či zámcích. Od 12. brezna jsme denně o min. 10-20 tisíc ztrátový. Nemáme na výplaty, nemáme na nájem provozovny, kde se to vyrábí, nemáme na leasing auta. Půjčky na rozjetí firmy nemůžeme splácet. A to jsme měli naplánováno akce každý den až do června, někdy i dvě. Pro nás je to likvidační.
