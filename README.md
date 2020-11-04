@@ -13,7 +13,7 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ### LEEDA
 ####   LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
-#### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
+#### Výše ztráty k 4. 11. 2020: cca -40 %
 
 Forma pomoci: "Nejvíce pomůže nákup. I když teď musíme mít kamenný obchod z nařízení vlády uzavřen, e-shop www.leeda.cz stále funguje. Leedu znovu otevřeme hned jak to bude povoleno.
 Abychom s vámi mohli zůstat v kontaktu - dostávali jste info kolekcích, slevách, nebo kódy na zvýhodněný nákup, doporučujeme přihlásit se na www.leeda.cz do našeho mailingu. Na e-shopu lze koupit i dárkové poukázky. Díky! "
@@ -1006,6 +1006,16 @@ Instagram/Facebook: [laformela](https://www.instagram.com/laformela/)
 
 ## Gastro
 
+### mamacoffee
+#### Pražírna kávy a kavárenství
+#### Výše ztráty k 4. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Zákazníci nás mohou podpořit na našem e-shopu, nebo návštěvou našich výdejních okének. Skvěle připravená káva není výhradou kaváren, s naší čerstvě praženou kávou a s drobnou radou si ji zvládne každý připravit doma sám!
+
+Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
+
+Instagram/Facebook: [mama_coffee](https://www.instagram.com/mama_coffee)/[mamacoffee](https://www.facebook.com/mamacoffee/)
+
 ### ČILANGO coffee
 #### Pražírna kávy
 #### Výše ztráty k 2. 11. 2020: zatím nevyčíslena
@@ -1084,16 +1094,6 @@ Forma pomoci: Každá objednávka nám pomůže a věřím, že vám udělá dob
 Webové stránky: [careandcake.cz](https://careandcake.cz/)
 
 Facebook: [careandcake](https://www.facebook.com/careandcake/)
-
-### mamacoffee
-#### Pražírna kávy a kavárenství
-#### Výše ztráty k 31. 3. 2020: zatím nevyčíslena
-
-Forma pomoci: Se zavřením kaváren se náš kontakt se zákazníky zúžil pouze na e-shop. Prodáváme čerstvě praženou kávu a produkty od lokálních dodavatelů. https://eshop.mamacoffee.cz/zrnkova-mleta-kava/
-
-Webové stránky: [mamacoffee.cz](https://mamacoffee.cz/cs/)
-
-Instagram/Facebook: [mama_coffee](https://www.instagram.com/mama_coffee)/[mamacoffee](https://www.facebook.com/mamacoffee/)
 
 ### Bistroteka Atelier
 #### bistroteka Atelier je skvělou kombinací bistra a vinotéky - k dobrému vínu totiž neodmyslitelně patří i něco dobrého k jídlu
@@ -1563,6 +1563,28 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 
 ## Služby
+
+### Papírna Stationery s.r.o.
+#### Vývoj, výroba a prodej papírenského sortimentu, firemních merkantilií a školních pomůcek.
+#### Výše ztráty k 4. 11. 2020: 150000
+
+Forma pomoci: "ESHOP BRZY. CYKLODOPRAVA UŽ NYNÍ
+Nově naše vlastní cyklodoprava - po Praze Vám doručíme vaši objednávku na kole.
+Uzavření našeho obchodu zasáhlo všechny včetně našich brigádníků, ale ti se iniciativně rozhodli nezůstat zmrazeni a rozhýbat pomoc. Společně spouštíme pro naše zákazníky novou službu. Cokoliv si nyní objednáte, přes náš kouzelný formulář na www.papirna.cz, můžeme Vám po Praze doručit na kole prostřednictvím našich vlastních lidí. Rozvážíme každé pondělí a čtvrtek mezi 15:00-18:00h. Děkujeme
+
+
+Cyklodoprava (Papírna Bike Delivery)
+rozváží každé pondělí a čtvrtek mezi 15:00-18:00. Postup je jednoduchý:
+1) Pošlete nám, co si přejete, přes naši kouzelnou poptávku na www.papirna.cz nebo nám vaše přání napište do emailu info@papirna.cz
+2) My Vám produkty připravíme a pečlivě zabalíme
+3) Pokud se v těchto časech necítíte na osobní vyzvednutí, předáme balíček našim cyklistům, kteří Vám ve výše uvedených časech (pondělí a čtvrtek mezi 15:00-18:00) doručí, samozřejmě po předchozí domluvě
+4) Platba bude možná, kromě převodu předem i osobně kartou při předání za 89 Kč Vám ekologicky a vlastními silami doručíme vše do práce nebo domů.
+
+A brzy spustíme náš nový eshop s předobjednávkou Diáře 2021. Děkujeme za vaši podporu, Za Papírnu Jaromír Koubek a Michal Koubský www.papirna.cz""
+
+Webové stránky: [www.papirna.cz](https://www.papirna.cz)
+
+Instagram/Facebook: [papirna](https://www.instagram.com/papirna/)/[papirna.cz](https://www.facebook.com/papirna.cz)
 
 ### Dox by Qubus
 #### Dox by Qubus je galerijní obchod situován v Centru současného umění DOX, nabízející sklo, porcelán, šperky, módu a užitý design od předních českých designérů, ale i zahraničních tvůrců.
