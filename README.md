@@ -1564,6 +1564,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Q U B U S
+#### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
+#### Výše ztráty k 4. 11. 2020: 2000000
+
+Forma pomoci: Každá objednávka pomůže nám, našim sklářským mistrům a porcelánce! Aktuálně nabízíme 20% slevu na produkty značky QUBUS a 10% na vše ostatní. Zboží jsme schopni bez problémů odeslat nebo přichystat k osobnímu vyzvednutí. 
+
+Webové stránky: [qubus.cz](https://eshop.qubus.cz/)
+
+Instagram/Facebook: [qubusdesign](https://www.instagram.com/qubusdesign)/[qubusdesignstudio](https://www.facebook.com/qubusdesignstudio)
+
 ### Papírna Stationery s.r.o.
 #### Vývoj, výroba a prodej papírenského sortimentu, firemních merkantilií a školních pomůcek.
 #### Výše ztráty k 4. 11. 2020: 150000
@@ -1727,16 +1737,6 @@ Forma pomoci: Při koupi produktů nad 500 Kč poštovné zdarma + malý dárek 
 Webové stránky: [panoply.cz](https://panoply.cz/)
 
 Instagram/Facebook: [Panoply.cz](https://www.instagram.com/Panoply.cz)/[panoply.cz](www.facebook.com/Panoply.cz)
-
-### Q U B U S
-#### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
-#### Výše ztráty k 1. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Každá objednávka nám pomůže. Aktuálně nabízíme 20% slevu na produkty značky QUBUS a 10% na vše ostatní. Zboží jsme schopni bez problémů odeslat nebo přichystat k osobnímu vyzvednutí.
-
-Webové stránky: [qubus.cz](https://eshop.qubus.cz/)
-
-Instagram/Facebook: [qubusdesign](https://www.instagram.com/qubusdesign)/[qubusdesignstudio](https://www.facebook.com/qubusdesignstudio)
 
 ### Vazárna
 #### Zakázkové papírnictví, knihařská dílna
