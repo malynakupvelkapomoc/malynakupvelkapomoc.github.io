@@ -1564,6 +1564,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### young_block
+#### Polygrafie a knihařská činnost
+#### Výše ztráty k 5. 11. 2020: 2 500 000 CZK
+
+Forma pomoci: Každý nákup nad 500 Kč dopravíme do Vašich rukou zdarma, za doporučení nového papíromila navíc nabídneme další slevu... Více u nás na webu. Pojďte spolu s námi šířit lásku k papíru světem.
+
+Webové stránky: [youngblock.cz](https://www.youngblock.cz)
+
+Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young_block](https://www.facebook.com/youngblock.cz/)
+
 ### Papelote
 #### Papírenská dílna a grafické studio, provoz kamenného obchodu
 #### Výše ztráty k 5. 11. 2020: 500 000 Kč (uzavření kamenného obchodu) 
@@ -1788,16 +1798,6 @@ Podpořit nás můžete tím, že donesete našité roušky (a my zajistíme jej
 Webové stránky: [institutmodnitvorby.cz](https://institutmodnitvorby.cz/)
 
 Instagram/Facebook: [institutmodnitvorby](https://www.instagram.com/institutmodnitvorby/?hl=cs)/[Institut modni tvorby]( https://www.facebook.com/Institut-m%C3%B3dn%C3%AD-tvorby-209892342373645/)
-
-### young_block
-#### Polygrafie a knihařská činnost
-#### Výše ztráty k 25. 3. 2020: 450 000 CZK
-
-Forma pomoci: Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek ve formě obyčejné tužky a papírových doplňků pro efektivní plánování a tvorbu fotoalb, z každého nákupu brzy 50 CZK poputuje na dobrou věc v místě našeho podnikání (aktuálně jednáme s Centrem sociální pomoci, zatím víc konkrétního nemáme)
-
-Webové stránky: [youngblock.cz](https://www.youngblock.cz)
-
-Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young_block](https://www.facebook.com/youngblock.cz/)
 
 
 ## Beauty
