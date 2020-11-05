@@ -1180,6 +1180,19 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### BOWBOW.sk
+#### Zdravé maškrty a iné fajnotky pre psy. BIO konzervy, 100% sušené mäso. Balíme ekologicky bez zbytočných obalov. Na váhu, od lokálnych výrobcov.
+#### Výše ztráty k 5. 11. 2020: 2 000 €
+
+Forma pomoci: 🐶 Havkáme na lepšie časy ❣️ Pýtaš sa ako ?
+Náš ekologický obchod pre malých aj veľkých havkáčov je zameraný na pečené maškrty bez konzervantov a umelých prísad 🍪🍪🍪 V ponuke máme voňavé fajnotky z mäsa, zeleniny, ovocia, ale myslíme aj na citlivé brušká, pre ktoré sú vhodné bezlepkové fajnotky. Ďalej ponúkame 100% sušené mäso a konzervy v BIO kvalite 🥩🥩
+♻ V našom obchodíku nenájdeš žiaden plast a zdravé maškrty balíme do recyklovaného papiera. Chránime našu Matku prírodu. Pridáš sa k nám?
+♥🌍🐾
+
+Webové stránky: [bowbow.sk](https://bowbow.sk)
+
+Instagram: [bowbow.sk](https://www.instagram.com/bowbow.sk/)
+
 ### Nela porcelán
 #### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
 #### Výše ztráty k 5. 11. 2020: zatím nevyčíslena
@@ -1345,18 +1358,6 @@ Forma pomoci: Budeme rádi, když nás podpoříte nákupem přes eshop. Potěš
 Webové stránky: [nasvacinu.cz](https://www.nasvacinu.cz)
 
 Instagram/Facebook: [nasvacinu](https://www.instagram.com/nasvacinu/)/[nasvacinucz](https://www.facebook.com/nasvacinucz/)
-
-### BOWBOW.sk
-#### Zdravé maškrty a iné fajnotky pre psy. BIO konzervy, 100% sušené mäso. Balíme ekologicky bez zbytočných obalov. Na váhu, od lokálnych výrobcov.
-#### Výše ztráty k 21. 4. 2020: zatiaľ nevyčíslená
-
-Forma pomoci: 🔥TOTO TU EŠTE NEBOLO🔥
-Pripravili sme si pre vás jarný MEGA VÝPREDAJ -20 % na všetko, čo sa ti zapáči na našom e-shope 🤩Je rok 2020, ktorý vojde do dejín a tak využi našu skvelú ponuku na zdravé maškrty a iné fajnotky pre malých aj veľkých psích maškrtníkov.
-👉🏻KÓD KUPÓNU: 2020 (platí na nákup v minimálnej hodnote 10,00€). 🐾www.bowbow.sk🐾
-
-Webové stránky: [bowbow.sk](https://bowbow.sk)
-
-Instagram: [bowbow.sk](https://www.instagram.com/bowbow.sk/)
 
 ### Dřevomalby
 #### Výstavy, kterých se můžete dotýkat, a které se dotknou i Vás! Snažím se, aby moje obrazy tvořené na dřevě (dřevomalby) nalezly cestu k lidem nejen v prostředí výstav, ale zůstávaly i v jejich domovech.
