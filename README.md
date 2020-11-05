@@ -1564,6 +1564,17 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 ## Služby
 
+### Papelote
+#### Papírenská dílna a grafické studio, provoz kamenného obchodu
+#### Výše ztráty k 5. 11. 2020: 500 000 Kč (uzavření kamenného obchodu) 
+
+Forma pomoci: Budeme moc rádi za jakýkoliv nákup na našem eshopu, nápad na společnou firemní zakázku nebo i tag našich produktů na socialu a to, že uvidíme, že je někdo používá a má rád. 
+
+Webové stránky: [papelote.cz](https://www.papelote.cz/)
+
+Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papelote](https://www.facebook.com/papelote.cz/)
+
+
 ### Q U B U S
 #### První obchod s designem v Praze, první showroom studia Qubus (designéři Jakub Berdych Karpelis, Maxim Velčovský).  - sklo - porcelán - konceptuální design - jinakost - sarkasmus  Práce studia Qubus vznikají ve spřízněných dílnách na regionální úrovni, podporují místní řemeslo, výrobní postupy a materiály. Všechny produkty jsou vyráběny ručně – buď designery samotnými nebo pak řemeslníky, s kterými dlouhodobě a úspěšně spolupracují.   
 #### Výše ztráty k 4. 11. 2020: 2000000
@@ -1787,16 +1798,6 @@ Forma pomoci: Poštovné zdarma nad 500 CZK, ke každému nákupu drobný dárek
 Webové stránky: [youngblock.cz](https://www.youngblock.cz)
 
 Instagram/Facebook: [young_block](https://www.instagram.com/young_block/)/[young_block](https://www.facebook.com/youngblock.cz/)
-
-### Papelote
-#### Papírenská dílna a grafické studio, provoz kamenného obchodu
-#### Výše ztráty k 24. 3. 2020: Předpokládaná výše ztráty ke konci dubna – 200 000 Kč 
-
-Forma pomoci: Smyslem papelote vždy bylo a bude přinášet lidem radost, inspirovat, motivovat ke kreativitě a podporovat odvahu a pozitivní myšlení. Rádi bychom v tom pokračovali i nadále a proto budeme vděčni za jakoukoliv drobnou podporu z vaší strany, za každou objednávku na našem eshopu, který zůstává v provozu s možností doručení domů či možností poslat někomu z vašich blízkých nebo přátelů náš produkt jako dárek z bezpečí domova. 
-
-Webové stránky: [papelote.cz](https://www.papelote.cz/)
-
-Instagram/Facebook: [papelote_cz](https://www.instagram.com/papelote_cz/)/[papelote](https://www.facebook.com/papelote.cz/)
 
 
 ## Beauty
