@@ -1180,6 +1180,17 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 ## Domov & design
 
+### Nela porcelán
+#### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
+#### Výše ztráty k 5. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Než to půjde - jsme schopni všechny naše kousky, stejně tak jako dárkové poukazy, zasílat poštou. Do konce listopadu můžeme plnit Vaše individuální přání. Porcelán, který najdete na našem webu, objednávejte prosím přes email. Fotíme, balíme a posíláme s osobním poděkováním a sladkou drobností. Sdílejte a zůstávejte zdraví a usměvaví! Děkujeme. 
+Až to půjde - vzpomeňte si na nás a udělejte si výlet do Mariánských Lázní. Je tu krásně! Uděláme vám dobrou kávu, ukážeme ateliér, necháme nahlédnout pod pokličku a poradíme, co všechno je tu k vidění. Těším se na vás! Nela
+
+Webové stránky: [nela-porcelan.cz](https://nela-porcelan.cz/)
+
+Facebook: [nelaporcelan](https://www.facebook.com/nelaporcelan/)
+
 ### LUIS
 #### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
 #### Výše ztráty k 4. 11. 2020: 600000
@@ -1384,17 +1395,6 @@ Forma pomoci: Můžete si objednat cokoliv na mých stránkách knížku, otáč
 Webové stránky: [papillon-detem.cz](http://www.papillon-detem.cz/)
 
 Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-607902755976238/)
-
-### Nela porcelán
-#### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
-#### Výše ztráty k 6. 4. 2020: zatím nevyčíslena
-
-Forma pomoci: Než to půjde - jsme schopni všechny naše kousky, stejně tak jako dárkové poukazy, zasílat poštou. Do konce listopadu můžeme plnit Vaše individuální přání. Porcelán, který najdete na našem webu, objednávejte prosím přes email. Fotíme, balíme a posíláme s osobním poděkováním a sladkou drobností. Sdílejte a zůstávejte zdraví a usměvaví! Děkujeme. 
-Až to půjde - vzpomeňte si na nás a udělejte si výlet do Mariánských Lázní. Je tu krásně! Uděláme vám dobrou kávu, ukážeme ateliér, necháme nahlédnout pod pokličku a poradíme, co všechno je tu k vidění. Těším se na vás! Nela
-
-Webové stránky: [nela-porcelan.cz](https://nela-porcelan.cz/)
-
-Facebook: [nelaporcelan](https://www.facebook.com/nelaporcelan/)
 
 ### Kokedamy.cz
 #### Vyrábíme a prodáváme kokedamy - rostliny v mechové kouli, které se vám můžou zavěšené pohupovat po bytě. Pochází z Japonska a jedná se o moderní trend v pěstování rostlin. Jsou vyráběny ručně, s láskou k přírodě. Kokedamy nabízíme na talířku, závěsné a levitující, které jinde nekoupíte. 
