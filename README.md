@@ -1389,7 +1389,7 @@ Facebook: [Papillon dětem](https://www.facebook.com/Papillon-dětem-60790275597
 #### Nela porcelán jsou vlastní návrhy, autorské kolekce i výroba exkluzivních originálů. V ateliéru v srdci Mariánských Lázní proběhne celý proces výroby od první skici po konečný produkt. 
 #### Výše ztráty k 6. 4. 2020: zatím nevyčíslena
 
-Forma pomoci: Než to půjde - jsme schopni všechny naše kousky, stejně tak jako dárkové poukazy, zasílat poštou. Kontaktujte mě prosím nejlépe přes email. Domluvíme se individuálně na vašem konkrétním přání. 
+Forma pomoci: Než to půjde - jsme schopni všechny naše kousky, stejně tak jako dárkové poukazy, zasílat poštou. Do konce listopadu můžeme plnit Vaše individuální přání. Porcelán, který najdete na našem webu, objednávejte prosím přes email. Fotíme, balíme a posíláme s osobním poděkováním a sladkou drobností. Sdílejte a zůstávejte zdraví a usměvaví! Děkujeme. 
 Až to půjde - vzpomeňte si na nás a udělejte si výlet do Mariánských Lázní. Je tu krásně! Uděláme vám dobrou kávu, ukážeme ateliér, necháme nahlédnout pod pokličku a poradíme, co všechno je tu k vidění. Těším se na vás! Nela
 
 Webové stránky: [nela-porcelan.cz](https://nela-porcelan.cz/)
