@@ -1169,7 +1169,7 @@ Instagram/Facebook: [longstoryshorthostel](https://www.instagram.com/longstorysh
 
 ### Rello Il Torrefattore
 #### pražírna kávy
-#### Výše ztráty k 23. 3. 2020: 50 000
+#### Výše ztráty k 23. 3. 2020: 50 000 CZK
 
 Forma pomoci: Objednat rozvoz kávy domů
 
@@ -1179,6 +1179,17 @@ Instagram/Facebook: [rello.coffee](https://www.instagram.com/rello.coffee/)
 
 
 ## Domov & design
+
+### goodbyGlass
+#### Projekt goodbyGlass se zabývá online prezentací mladých sklářských výtvarníků, kteří se zaměřují na české ateliérové sklo, design a šperky. Jeho součástí je nejen online platforma, ale i výstavní a kulturní činnost. K propagaci tak dochází nejen pomocí fotografií na webu, ale samotným zážitkem při kontaktu s dílem na výstavních, designérských či společenských akcích.
+#### Výše ztráty k 6. 11. 2020: 195 000 CZK
+
+Forma pomoci: Nákupem v našem e-shopu podpoříte české sklářské výtvarníky, kteří to v současné době nemají vůbec snadné. Zútulníte si svůj domov, či jiný soukromý nebo veřejný prostor. Zároveň vložíte finance do uměleckého díla, které v následujících letech může nabídnout zajímavé zhodnocení. Při této příležitosti průběžně nabízíme slevy na vybrané kousky. Můžete nám také jen přispět nákupem skleněného "Srdce vděčnosti" či nás sledovat a sdílet na sociálních sítích. 
+Za podporu Vám velice děkujeme!
+
+Webové stránky: [goodby.glass](https://goodby.glass/)
+
+Facebook/Instagram: [goodbyglass]( https://www.facebook.com/goodbyglass/)/[goodbyglass](https://www.instagram.com/goodby_glass/ )
 
 ### BOWBOW.sk
 #### Zdravé maškrty a iné fajnotky pre psy. BIO konzervy, 100% sušené mäso. Balíme ekologicky bez zbytočných obalov. Na váhu, od lokálnych výrobcov.
@@ -1205,7 +1216,7 @@ Facebook: [nelaporcelan](https://www.facebook.com/nelaporcelan/)
 
 ### LUIS
 #### Bytové a kuchyňské doplňky, dekorace, ale především designové porcelánové kolekce české značky by inspire...porcelán s českou duší pro Vás s láskou připravuje česká firma Luis. To a vše ostatní pro vaše bydlení - DOMOV je pro nás důležitý.
-#### Výše ztráty k 4. 11. 2020: 600000
+#### Výše ztráty k 4. 11. 2020: 600 000 CZK
 
 Forma pomoci: Podpořit nás můžete nákupem na našem e-shopu Luis.cz. Každé vaší pomoci si vážíme! Tak vám na oplátku nabízíme 20% slevu na všechny nezlevněné produkty při zadání slevového kódu “VELKAPOMOC”. Děkujeme Vám!
 
@@ -1236,7 +1247,7 @@ Instagram/Facebook: [peelo.wraps](https://www.instagram.com/peelo.wraps/ )/[peel
 
 ### BACKYARD design concept store
 #### současný český design - móda, šperky, doplňky, užité umění
-#### Výše ztráty k 2. 11. 2020: 500000
+#### Výše ztráty k 2. 11. 2020: 500 000 CZK
 
 Forma pomoci: nákup zboží přes e-shop či email
 
@@ -1246,7 +1257,7 @@ Facebook: [bckrd](https://www.facebook.com/bckrd/)
 
 ### keramik.ART.studio
 #### prodej autorských originálů na e-shopu
-#### Výše ztráty k 2. 11. 2020: odhadem zatím 350000
+#### Výše ztráty k 2. 11. 2020: odhadem zatím 350 000 CZK
 
 Forma pomoci: nákup na e-shopu velmi pomůže překonat náklady vynaložené na nákup látek z ledna a února, kdy jsme ještě úplně netušili co se na nás připravuje. Hedvábí je vhodné jako dárek a od 1000Kč poštovné zdarma. 
 
@@ -1256,7 +1267,7 @@ Instagram/Facebook: [keramikartstudio](https://www.instagram.com/keramikartstudi
 
 ### SUPERMARKET WC
 #### Karlovarská design galerie, obchod a e-shop prezentuje designéry a tvůrce z ČR. Zaměřujeme se na lokální tvůrce z Karlovarska i značky a autory z dalších míst republiky. Nabízíme jedinečné designové produkty od zápisníků, přes knihy z malých nakladatelství,tašky, hračky až po šperky, porcelán a sklo. 
-#### Výše ztráty k 2. 11. 2020: 70000
+#### Výše ztráty k 2. 11. 2020: 70 000 CZK
 
 Forma pomoci: "Udělejte si radost nákupem na našem eshopu. Prohlédněte si produkty od českých designových značek, dětské knihy z malých nakladatelství nebo neopakovatelné umělecké kousky. Podpoříte tak práci českých značek, tvůrců z Karlovarska i celé ČR. Kreativita nás zachrání.  
 Děkujeme vám za podporu na jaře. I nadále obnovujte klid a dobíjejte baterky vším, co vás dělá opravdu šťastnými."
@@ -1455,17 +1466,6 @@ Forma pomoci: Nákup našich pohybových hraček. A nebo o nás řekněte soused
 Webové stránky: [utukutu.cz](https://www.utukutu.cz)
 
 Instagram: [Utukutueu](https://www.instagram.com/Utukutueu/)
-
-### goodbyGlass
-#### Projekt goodbyGlass se zabývá online prezentací mladých sklářských výtvarníků, kteří se zaměřují na české ateliérové sklo, design a šperky. Jeho součástí je nejen online platforma, ale i výstavní a kulturní činnost. K propagaci tak dochází nejen pomocí fotografií na webu, ale samotným zážitkem při kontaktu s dílem na výstavních, designérských či společenských akcích.
-#### Výše ztráty k 30. 3. 2020: 30000+
-
-Forma pomoci: Nákupem v našem e-shopu podpoříte české sklářské výtvarníky, kteří to v současné době nemají vůbec snadné. Zútulníte  si svůj domov, či jiný soukromý nebo veřejný prostor. Zároveň vložíte finance do uměleckého díla, které v následujících letech může nabídnout zajímavé zhodnocení. Při této příležitosti nabízíme 20% slevu na vybrané kousky. Zvýhodněné dárkové poukazy pořídíte s 10% slevou.  Poštovné od nás máte jako vždy zdarma. Můžete nám také jen přispět nákupem skleněného Srdce vděčnosti či nás sdílet na sociálních sítích.
-Za podporu Vám velice děkujeme!"
-
-Webové stránky: [goodby.glass](https://goodby.glass/)
-
-Facebook/Instagram: [goodbyglass]( https://www.facebook.com/goodbyglass/)/[goodbyglass](https://www.instagram.com/goodby_glass/ )
 
 ### Keramika Andreas
 #### Vyrábíme keramické dekorace a dárky pro útulný domov.
