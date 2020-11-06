@@ -11,8 +11,29 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### eh sisters
+####   Navrhujeme tisky na látky, ze kterých potom šijeme především dámské oblečení, které zdůrazní ženské linie, ale zároveň Vám v něm bude pohodlně. Všechny naše výrobky vznikají v České republice, a to od tisků na látky až po samotné ušití konkrétního výrobku.  
+#### Výše ztráty k 6. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Pomůžete nám koupí některého z našich produktů na eshopu, a že tam toho na Vás čeká mnoho :). Můžete vybírat ze sukní, šatů, kabátů, mikin, hrnků, notesů a dalších výrobků. Aktuálně máme ke každé objednávce nad 1500Kč dopravu zdarma. Z každé objednávky máme radost a velmi si Vaší pomoci vážíme. Děkujeme! 
+
+Webové stránky: [ehsisters.cz](https://ehsisters.cz/)
+
+Instagram/Facebook: [ehsisters](https://www.instagram.com/ehsisters/)/[eh.sisters](https://www.facebook.com/eh.sisters/)
+
+
+### Cvok
+#### Neotřelé šperky a pomalá móda.  
+#### Výše ztráty k 6. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Každou objednávku vyrábím s láskou a budu moc ráda, když mě podpoříte a uděláte si radost nějakým šperkem či kouskem na sebe.  
+
+Webové stránky: [cvokhouse.cz](http://www.cvokhouse.cz)
+
+Instagram/Facebook: [cvok_original](https://www.instagram.com/cvok_original/)/[cvok.original](https://www.facebook.com/cvok.original/)
+
 ### LEEDA
-####   LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
+#### LEEDA je původní česká módní značka založena roku 2003. Ve stejnojmeném obchodě najdete mimo kolekce Leeda i kurátorsky vybrané doplňky a šperky od lokálních tvůrců. Značka je charakteristická minimalistickým designem s propracovaným detailem, variabilitou i vysoce kvalitnímy materiály s autorským tiskem. Mimo autorskou tvorbu se designérka Lucie Kutálková soustředí i na individuální zakázkovou výrobu.Výroba probíhá za etických podmínek výhradně v ČR, s důrazem na kvalitu i původ používaných materiálů. 
 #### Výše ztráty k 4. 11. 2020: cca -40 %
 
 Forma pomoci: "Nejvíce pomůže nákup. I když teď musíme mít kamenný obchod z nařízení vlády uzavřen, e-shop www.leeda.cz stále funguje. Leedu znovu otevřeme hned jak to bude povoleno.
