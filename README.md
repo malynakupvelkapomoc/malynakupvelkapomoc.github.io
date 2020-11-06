@@ -153,16 +153,16 @@ Webové stránky: [yosoy.cz](http://eshop.yosoy.cz/)
 
 Facebook/Instagram: [yosoy jewellery](https://www.facebook.com/yosoy.jewellery/)/[yosoy.design](https://www.instagram.com/yosoy.design/)
 
-### Live Sweaters
+### Merino.Live
 #### Tvoříme oblečení převážně ze 100% MERINO VLNY extra fine. Soustředíme se na pletenou módu, jako jsou digitálně ilustrované či business casual svetry s jedinečným designem. Pro toto období doporučujeme basic trika z merino vlny a funkční merino ponožky s protiklíšťovou úpravou (jestli máte možnost vyrazit třeba na zahradu). Díky benefitům merino vlny naše produkty dlouho vydrží a nemusíte je tak často prát. Vše vyrábíme v Čechách.
 #### Výše ztráty k 2. 11. 2020: 30000+
 
 Forma pomoci: Udělejte sobě i blízkým hezké Vánoce. :) 
 Budu moc rád, když nás podpoříte nákupem produktů nebo voucherů. Navíc máme pro všechny DOPRAVU přes Zásilkovnu ZDARMA (ČR, SR) a ještě slevu 10% s kódem MALYNAKUPVELKAPOMOC na celý nákup.
 
-Webové stránky: [livesweaters.eu](https://www.livesweaters.eu/cs)
+Webové stránky: [merino.live](https://www.merino.live)
 
-Facebook/Instagram: [LiveSweaters]( https://www.facebook.com/LiveSweaters/)/[livesweaters](https://www.instagram.com/livesweaters/ )
+Facebook/Instagram: [LiveSweaters](https://www.facebook.com/Merino.Live)/[merino.live](https://www.instagram.com/merino.live/)
 
 ### Buffet
 #### Navrhovanie a tvorba dámskej a pánskej módy
