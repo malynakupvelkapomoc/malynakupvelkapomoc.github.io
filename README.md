@@ -183,7 +183,7 @@ Budu moc rád, když nás podpoříte nákupem produktů nebo voucherů. Navíc 
 
 Webové stránky: [merino.live](https://www.merino.live)
 
-Facebook/Instagram: [LiveSweaters](https://www.facebook.com/Merino.Live)/[merino.live](https://www.instagram.com/merino.live/)
+Facebook/Instagram: [Merino.Live](https://www.facebook.com/Merino.Live)/[merino.live](https://www.instagram.com/merino.live/)
 
 ### Buffet
 #### Navrhovanie a tvorba dámskej a pánskej módy
