@@ -1,4 +1,4 @@
-**UPDATE 5. 11. 2020**  
+**UPDATE 10. 11. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -1584,6 +1584,16 @@ Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
 
 
 ## Služby
+
+### EBUU
+#### EBUU je eko platforma pro mateřství a malé děti - půjčuje, prodává a zpětně vykupuje dětský a mateřeský sortiment. Momentálně je v naší nabídce oblečení, boty, hračky, plenky, spací potřeby a těhotenské potřeby. 
+#### Výše ztráty k 10. 11. 2020: zatím nevyčíslena
+
+Forma pomoci: Objednávkou na našem webu s 5% slevou. Stačí zadat heslo "velkapomoc".
+
+Webové stránky: [ebuu.cz](https://www.ebuu.cz)
+
+Instagram/Facebook: [ebuucz](https://www.instagram.com/ebuucz/)/[EBUUcz](https://www.facebook.com/EBUUcz/)
 
 ### young_block
 #### Polygrafie a knihařská činnost
