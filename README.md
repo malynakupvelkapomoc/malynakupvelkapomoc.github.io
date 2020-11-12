@@ -1,4 +1,4 @@
-**UPDATE 10. 11. 2020**  
+**UPDATE 12. 11. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -1026,6 +1026,16 @@ Webové stránky: [laformela.com](http://shop.laformela.com)
 Instagram/Facebook: [laformela](https://www.instagram.com/laformela/) 
 
 ## Gastro
+
+### Kavárna Dejvického Divadla
+#### Divadelní kavárna, která dělá i obědy :)
+#### Výše ztráty k 12. 11. 2020: 700000
+
+Forma pomoci: Nákup obědů či dezertů v našem eshopu.
+
+Webové stránky: [kavarnaddrozvoz.cz](https://www.kavarnaddrozvoz.cz/)
+
+Facebook: [kavarnadd](https://www.facebook.com/kavarnadd)
 
 ### mamacoffee
 #### Pražírna kávy a kavárenství
