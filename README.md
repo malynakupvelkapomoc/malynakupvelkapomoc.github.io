@@ -11,6 +11,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 
 ## Móda a doplňky
 
+### #vecizveci
+#### Tvoříme ze starého oblečení další produkty. Projekt vznikl jako odpověď na rychlou módu se snahou snížit produkci stále nových výrobků a soustředit se na znovu využití těch starých. V nabídce produktů najdete “up-cycling” tašky, batohy, ledvinky a nově i základní prvek každého šatníků, tričko PoeTEE, jež si vás dovolí vzdělat básní.  
+#### Výše ztráty k 16. 11. 2020: cca 40%
+
+Forma pomoci: Pomůže nám nákup některého z našich produktů z webových stránek www.vecizveci.cz,  oceníme i sdílení na vašich sociálních sítích. 
+
+Webové stránky: [vecizveci.cz](http://www.vecizveci.cz)
+
+Instagram/Facebook: [vecizveci](https://www.instagram.com/vecizveci/)/[vecizveci](https://www.facebook.com/vecizveci/)
+
 ### eh sisters
 ####   Navrhujeme tisky na látky, ze kterých potom šijeme především dámské oblečení, které zdůrazní ženské linie, ale zároveň Vám v něm bude pohodlně. Všechny naše výrobky vznikají v České republice, a to od tisků na látky až po samotné ušití konkrétního výrobku.  
 #### Výše ztráty k 6. 11. 2020: zatím nevyčíslena
@@ -20,7 +30,6 @@ Forma pomoci: Pomůžete nám koupí některého z našich produktů na eshopu, 
 Webové stránky: [ehsisters.cz](https://ehsisters.cz/)
 
 Instagram/Facebook: [ehsisters](https://www.instagram.com/ehsisters/)/[eh.sisters](https://www.facebook.com/eh.sisters/)
-
 
 ### Cvok
 #### Neotřelé šperky a pomalá móda.  
