@@ -1,4 +1,4 @@
-**UPDATE 16. 11. 2020**  
+**UPDATE 17. 11. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -10,6 +10,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 👇
 
 ## Móda a doplňky
+
+### SISTERSCONSPIRACY
+#### Tvoříme česká udržitelnou módu pro ženy i muže z kvalitních přírodních materiálů už od roku 2005.  
+#### Výše ztráty k 17. 11. 2020: cca 40%
+
+Forma pomoci: Náš showroom na Letné je zavřený, ale vše najdete v e-shopu https://sistersconspiracy.cz/e-shop/.  Aktuálně jsme přidaly i menší produkty, které jsou ideální jako vánoční dárky - třeba trenky, motýlky nebo domácí sety z krásného českého lnu - a hodně produktů jsme zlevnily až o 30%. Navíc máme až do opětovného otevření na vše dopravu zdarma. Jakýkoliv nákup je pro nás velká pomoc, děkujeme!  
+
+Webové stránky: [sistersconspiracy](https://sistersconspiracy.cz/)
+
+Instagram/Facebook: [@sistersconspiracy](https://www.instagram.com/sistersconspiracy/)/[@SISTERSCONSPIRACY](https://www.facebook.com/SISTERSCONSPIRACY)
 
 ### #vecizveci
 #### Tvoříme ze starého oblečení další produkty. Projekt vznikl jako odpověď na rychlou módu se snahou snížit produkci stále nových výrobků a soustředit se na znovu využití těch starých. V nabídce produktů najdete “up-cycling” tašky, batohy, ledvinky a nově i základní prvek každého šatníků, tričko PoeTEE, jež si vás dovolí vzdělat básní.  
@@ -1315,6 +1325,15 @@ Webové stránky: [taktobylo.com](http://www.taktobylo.com/)
 
 Instagram/Facebook: [taktobyloprojekt](https://www.instagram.com/taktobyloprojekt/)/[taktobyloprojekt](https://www.facebook.com/taktobyloprojekt/)
 
+### tokyobike
+#### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
+
+Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
+
+Webové stránky: [tokyobike.cz](https://www.urbane.cz)
+
+Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
+
 ### RostoucíNábytek.com
 #### Prodej rostoucího nábytku pro děti v e-shopu a na showroomu.
 
@@ -1504,16 +1523,6 @@ Forma pomoci: Nákupem produktů nebo voucherů v e-shopu.
 Webové stránky: [shop.czechdesign.cz](https://shop.czechdesign.cz/)
 
 Instagram/Facebook: [czechdesign.cz](https://www.instagram.com/czechdesign.cz/)/[CZECHDESIGN.CZ](https://www.facebook.com/CZECHDESIGN.CZ/)
-
-### tokyobike
-#### prodej městských kol a doplňků pro cestovaní po městě značky tokyobike
-
-Forma pomoci: nákup v našem eshopu, nákup dárkových poukazů
-
-Webové stránky: [tokyobike.cz](https://www.urbane.cz)
-
-Instagram/Facebook: [tokyobikepraha](https://www.instagram.com/tokyobikepraha/)
-
 
 
 ## Služby
