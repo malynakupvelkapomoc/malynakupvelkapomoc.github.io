@@ -650,8 +650,7 @@ Instagram/Facebook: [timoure_et_group](https://www.instagram.com/timoure_et_grou
 ### DEERS
 #### České šperky jelínků a laní. Vše vyrábíme ručně ve vinohradském atelieru s důrazem na detail.
 
-Forma pomoci: "Každá objednávka je pro nás podporou.
-Na e-shopu jsou všechny šperky jelínků a laní skladem, posíláme poštou a je možné si objednaný šperk vyzvednout v předem domluvený čas přímo v atelieru. Naše Laně pomáhají nadaci Krása pomoci, která se stará o potřeby seniorů. Z každé prodané laně posíláme nadaci 50 korun. Nabízíme dárkové vouchery - posíláme poštou i online. Všechnu dopravu máme do odvolání ZDARMA. Máme také v nabídce materiál ke tvoření pro děti z nespotřebovaných kousků koženek, korálků i mašliček. Materiál tak dostane nové využití.
+Forma pomoci: Nákup šperků na e-shopu.
 
 Webové stránky: [deers.cz](http://deers.cz/eshop/cs/)
 
