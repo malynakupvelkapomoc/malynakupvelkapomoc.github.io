@@ -1,4 +1,4 @@
-**UPDATE 23. 11. 2020**  
+**UPDATE 25. 11. 2020**  
 Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho týmu prosíme o shovívavost vůči délce trvání zařazení vaší firmy do seznamu. Jsme v tom s vámi.
 
 # Malí podnikatelé v Česku a na Slovensku momentálně procházejí velkou krizí. Kamenné prodejny a provozovny jsou kvůli šíření koronaviru uzavřené. Není jisté, jak dlouho aktuální nouzová situace potrvá a zda ji vůbec dokáží překonat.
@@ -10,6 +10,16 @@ Děkujeme za sdílení stránky. Vzhledem k situaci a vytíženosti našeho tým
 👇
 
 ## Móda a doplňky
+
+### Fraise, autorský atelier
+#### Miluji, když mohu každou křivku těla přenést do střihu, a obléknout Vás tak, že budete blahem bez sebe. U nás v atelieru Fraise se vašich křivek nebojíme.
+#### Výše ztráty k 25. 11. 2020: prozatím nevyčísleno
+
+Forma pomoci: Nákupem u nás na e-shopu www.fraise.cz, kde každý kousek oblečení vyrobíme na míru, bez příplatku. Navíc jsou nyní téměř všechny kousky se slevou 10-50%
+
+Webové stránky: [fraise.cz](http://fraise.cz)
+
+Instagram/Facebook: [fraise_czechlabel](https://www.instagram.com/fraise_czechlabel)/[Fraise.cz]( https://www.facebook.com/Fraise.cz)
 
 ### SISTERSCONSPIRACY
 #### Tvoříme česká udržitelnou módu pro ženy i muže z kvalitních přírodních materiálů už od roku 2005.  
