@@ -128,7 +128,6 @@ h2 {
     font-size: 1.625rem;
     margin-top: 3rem;
     margin-bottom: 2rem;
-    color: #44237A;
 }
   }
 
@@ -671,4 +670,8 @@ a:active, a:focus {
 
     .search {
       display: none;
+    }
+
+    h2 {
+      color: #44237A;
     }
