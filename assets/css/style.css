@@ -128,6 +128,7 @@ h2 {
     font-size: 1.625rem;
     margin-top: 3rem;
     margin-bottom: 2rem;
+    color: #44237A;
 }
   }
 
@@ -613,4 +614,51 @@ a:active, a:focus {
           top: 20px;
           visibility: visible;
         }
+
+        .arrow {
+          background-color: #67002d;
+          width: 25px;
+          height: 25px;
+          -webkit-mask-image: url(../../assets/images/up-arrow.svg);
+          mask-image: url(../../assets/images/up-arrow.svg);
+          position: fixed;
+          top: 35px;
+          right: 20px;
+          visibility: visible;
+        }
+    }
+
+    #findInput {
+      max-width: 95px;
+      padding: 1px 6px;
+      background: #f1edea;
+      color: #67002d;
+      border-radius: 5px;
+      border-style: solid;
+      border-width: 1px;
+      border-color: #67002d;
+    }
+
+    .search {
+      width: 95px;
+      margin-top: 5px;
+      background: #f1edea;
+      color: #67002d;
+      border-radius: 5px;
+      border-style: solid;
+      border-width: 1px;
+      border-color: #67002d;
+      transition: 0.1s background-color linear, 0.1s color linear;
+    }
+
+    .search:hover {
+      background-color: #66002e;
+      color: #fff;
+    }
+
+    input:focus,
+    select:focus,
+    textarea:focus,
+    button:focus {
+        outline: none;
     }

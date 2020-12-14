@@ -42,6 +42,15 @@
   –––––––––––––––––––––––––––––––––––––––––––––––––– -->
   <script type="text/javascript" src="//downloads.mailchimp.com/js/signup-forms/popup/unique-methods/embed.js" data-dojo-config="usePlainJson: true, isDebug: false"></script><script type="text/javascript">window.dojoRequire(["mojo/signup-forms/Loader"], function(L) { L.start({"baseUrl":"mc.us19.list-manage.com","uuid":"00622990f8713a37af8cdb58b","lid":"fdf3f5bff2","uniqueMethods":true}) })</script>
   
+  <!-- Global site tag (gtag.js) - Google Analytics -->
+<script async src=“https://www.googletagmanager.com/gtag/js?id=G-8B6G0XDFZ0”></script>
+<script>
+  window.dataLayer = window.dataLayer || [];
+  function gtag(){dataLayer.push(arguments);}
+  gtag(‘js’, new Date());
+  gtag(‘config’, ‘G-8B6G0XDFZ0’);
+</script>
+
 </head>
   <body>
     <header class="header header-inner">
@@ -70,6 +79,10 @@
               <li><a href="#služby">SLUŽBY</a></li>
               <li><a href="#beauty">BEAUTY</a></li>
             </ul>
+
+            <input type="text" id="findInput" onkeyup="FindNextEnter ();" value="" size="20" />
+            <button class="search" onclick="FindNext ();">Hledej</button>
+
           </div>
           <div class="ten columns notice">
 
@@ -77,6 +90,9 @@
 
           </div>
         </div>
+
+        <a href="#header"><div class="arrow"></div></a>
+
       </div>
     </section>
 
@@ -95,6 +111,40 @@
         </div>
       </div>
     </footer>
+
+    <script>
+      function checkInput() {
+          var query = document.getElementById('search').value;
+          window.find(query);
+          return true;
+      }
+    </script>
+
+    <script type="text/javascript">
+      function FindNext () {
+          var str = document.getElementById ("findInput").value;
+          if (str == "") {
+              alert ("Zadejte prosím text který hledáte");
+              return;
+          }
+          
+          if (window.find) {        // Firefox, Google Chrome, Safari
+              var found = window.find (str);
+              if (!found) {
+                  alert ("Následující text nebyl nalezen:\n" + str);
+              }
+          }
+          else {
+              alert ("Váš prohlížeč tuto funkci bohužel nepodporuje!");
+          }
+      }
+
+      function FindNextEnter () {
+        if (event.keyCode === 13) {
+          FindNext();
+        }
+      }
+    </script>
 
   </body>
 </html>
