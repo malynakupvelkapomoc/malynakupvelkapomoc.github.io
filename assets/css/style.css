@@ -606,6 +606,14 @@ a:active, a:focus {
       font-size: 1rem;
     }
 
+    #findInput {
+      display: none;
+    }
+
+    .search {
+      display: none;
+    }
+
     @media (min-width: 60em) {
         .sticky {
           position: -webkit-sticky; /* Safari */
@@ -662,14 +670,6 @@ a:active, a:focus {
         button:focus {
             outline: none;
         }
-    }
-
-    #findInput {
-      display: none;
-    }
-
-    .search {
-      display: none;
     }
 
     h2 {
