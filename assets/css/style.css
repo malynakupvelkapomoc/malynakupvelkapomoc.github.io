@@ -626,39 +626,49 @@ a:active, a:focus {
           right: 20px;
           visibility: visible;
         }
+
+        #findInput {
+          display: block;
+          max-width: 95px;
+          padding: 1px 6px;
+          background: #f1edea;
+          color: #67002d;
+          border-radius: 5px;
+          border-style: solid;
+          border-width: 1px;
+          border-color: #67002d;
+        }
+    
+        .search {
+          display: block;
+          width: 95px;
+          margin-top: 5px;
+          background: #f1edea;
+          color: #67002d;
+          border-radius: 5px;
+          border-style: solid;
+          border-width: 1px;
+          border-color: #67002d;
+          transition: 0.1s background-color linear, 0.1s color linear;
+        }
+    
+        .search:hover {
+          background-color: #66002e;
+          color: #fff;
+        }
+    
+        input:focus,
+        select:focus,
+        textarea:focus,
+        button:focus {
+            outline: none;
+        }
     }
 
     #findInput {
-      max-width: 95px;
-      padding: 1px 6px;
-      background: #f1edea;
-      color: #67002d;
-      border-radius: 5px;
-      border-style: solid;
-      border-width: 1px;
-      border-color: #67002d;
+      display: none;
     }
 
     .search {
-      width: 95px;
-      margin-top: 5px;
-      background: #f1edea;
-      color: #67002d;
-      border-radius: 5px;
-      border-style: solid;
-      border-width: 1px;
-      border-color: #67002d;
-      transition: 0.1s background-color linear, 0.1s color linear;
-    }
-
-    .search:hover {
-      background-color: #66002e;
-      color: #fff;
-    }
-
-    input:focus,
-    select:focus,
-    textarea:focus,
-    button:focus {
-        outline: none;
+      display: none;
     }
